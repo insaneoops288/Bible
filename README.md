@@ -25,3 +25,5 @@
 남을 정죄하지 말아라. 그러면 하나님께서도 너희를 정죄하지 않으실 것이다.
 남을 용서하여라. 그러면 하나님께서도 너희를 용서하실 것이다.
 누가복음 6:37
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png)
