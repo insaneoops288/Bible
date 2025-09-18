@@ -28,7 +28,7 @@
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png)
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png)
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png)
 
 ![image]([https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png)
 
