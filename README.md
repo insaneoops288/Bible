@@ -45,7 +45,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="250">
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150">
-Check out <https://github.com/insaneoops288/Bible/>
+Check out <https://docs.unrealengine.com/4.27/en-US/Resources/SampleGames/ARPG/>
 
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible005.png" width="150">
