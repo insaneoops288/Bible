@@ -36,9 +36,9 @@
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png)
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible004.png)
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible004" width="250">
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible004A.png)
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible004A" width="250">
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
