@@ -40,7 +40,7 @@
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png)
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="250">
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png)
 
