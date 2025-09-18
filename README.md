@@ -67,7 +67,7 @@
 
 
 
-[![Video Label](http://img.youtube.com/vi/lipQiJhTK_w&t=473s/0.jpg)](https://www.youtube.com/watch?v=lipQiJhTK_w&t=34s)
+[![Video Label](http://img.youtube.com/vi/lipQiJhTK_w/0.jpg)](https://www.youtube.com/watch?v=lipQiJhTK_w&t=34s)
 
 
 
