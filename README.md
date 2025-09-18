@@ -66,6 +66,10 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="100">
 
 
+https://youtu.be/FxXPmPX4gSg?list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_
+[![Video Label](http://img.youtube.com/vi/'유튜브주소의id'/0.jpg)](https://youtu.be/'유튜브주소의id')
+
+
 
 
 
