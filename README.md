@@ -44,11 +44,11 @@
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible005.png)
 
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
+
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png)
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png)
-
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
