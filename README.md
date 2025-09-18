@@ -27,3 +27,20 @@
 누가복음 6:37
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible004.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible005.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
+
+
+
+
+
