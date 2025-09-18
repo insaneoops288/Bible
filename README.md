@@ -67,7 +67,7 @@
 
 
 https://youtu.be/FxXPmPX4gSg?list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_
-[![Video Label](http://img.youtube.com/vi/'유튜브주소의id'/0.jpg)](https://youtu.be/'유튜브주소의id')
+[![Video Label](https://youtu.be/FxXPmPX4gSg?list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_/0.jpg)](https://youtu.be/FxXPmPX4gSg?list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_)
 
 
 
