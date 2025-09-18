@@ -40,6 +40,16 @@
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
 
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png)
+
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png)
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
 
