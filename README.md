@@ -45,7 +45,8 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="250">
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150">
-업데이트 확인하세요. !! <https://github.com/insaneoops288/Bible/>
+Check out <https://github.com/insaneoops288/Bible/>
+
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible005.png" width="150">
 
