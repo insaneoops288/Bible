@@ -40,7 +40,7 @@
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.jpg)
+![image](https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png)
 
 
 
