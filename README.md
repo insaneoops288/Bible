@@ -44,9 +44,9 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="250">
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="250">
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="200">
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible005.png)
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible005.png" width="200">
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
 
