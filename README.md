@@ -50,9 +50,9 @@
 
 ![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible006.png)
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png)
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="150">
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png)
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="150">
 
 
 
