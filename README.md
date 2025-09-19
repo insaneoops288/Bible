@@ -50,7 +50,7 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
-# <https://github.com/insaneoops288/Bible/>
+[![Video Label](http://img.youtube.com/vi/RtIdi5DzV7k/0.jpg)](https://www.youtube.com/watch?v=RtIdi5DzV7k)
 
 [![Video Label](http://img.youtube.com/vi/-jR0ljmGzf8/0.jpg)](https://www.youtube.com/watch?v=-jR0ljmGzf8)
 
