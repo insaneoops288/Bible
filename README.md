@@ -44,6 +44,8 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
+[![Video Label](http://img.youtube.com/vi/OTZHtN0YqTI/0.jpg)](https://www.youtube.com/watch?v=OTZHtN0YqTI)
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="250">
 
 [![Video Label](http://img.youtube.com/vi/rwGmyHYcX10/0.jpg)](https://www.youtube.com/watch?v=rwGmyHYcX10)
