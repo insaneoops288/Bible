@@ -52,7 +52,7 @@
 
 # <https://github.com/insaneoops288/Bible/>
 
-[![Video Label](http://img.youtube.com/vi/jR0ljmGzf8/0.jpg)](https://www.youtube.com/watch?v=jR0ljmGzf8)
+[![Video Label](http://img.youtube.com/vi/-jR0ljmGzf8/0.jpg)](https://www.youtube.com/watch?v=-jR0ljmGzf8)
 
 
 [![Video Label](http://img.youtube.com/vi/rqvRRzMq7sU/0.jpg)](https://www.youtube.com/watch?v=rqvRRzMq7sU)
