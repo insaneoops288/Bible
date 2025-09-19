@@ -59,16 +59,3 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="100">
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="100">
-
-
-
-
-
-
-
-
-
-
-
-
