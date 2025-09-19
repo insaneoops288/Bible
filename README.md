@@ -40,9 +40,7 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="250">
 
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png)
-
-![image](https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png)
+[![Video Label](http://img.youtube.com/vi/c8D2SB19txI/0.jpg)](https://www.youtube.com/watch?v=c8D2SB19txI)
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible004.png" width="200">
 
