@@ -36,7 +36,6 @@
 
 [![Video Label](http://img.youtube.com/vi/XYxqmtCcblE/0.jpg)](https://www.youtube.com/watch?v=XYxqmtCcblE)
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="250">
 
 [![Video Label](http://img.youtube.com/vi/c8D2SB19txI/0.jpg)](https://www.youtube.com/watch?v=c8D2SB19txI)
 
@@ -46,7 +45,6 @@
 
 [![Video Label](http://img.youtube.com/vi/OTZHtN0YqTI/0.jpg)](https://www.youtube.com/watch?v=OTZHtN0YqTI)
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="250">
 
 [![Video Label](http://img.youtube.com/vi/rwGmyHYcX10/0.jpg)](https://www.youtube.com/watch?v=rwGmyHYcX10)
 
@@ -65,7 +63,6 @@
 
 
 
-[![Video Label](http://img.youtube.com/vi/lipQiJhTK_w/0.jpg)](https://www.youtube.com/watch?v=lipQiJhTK_w&t=34s)
 
 
 
