@@ -39,8 +39,6 @@
 
 https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
-[![Video Label](http://img.youtube.com/vi/bBHrU9cRFuw/0.jpg)](https://www.youtube.com/watch?v=bBHrU9cRFuw)
-
 [![Video Label](http://img.youtube.com/vi/XYxqmtCcblE/0.jpg)](https://www.youtube.com/watch?v=XYxqmtCcblE)
 
 
