@@ -34,6 +34,8 @@
 남을 용서하여라. 그러면 하나님께서도 너희를 용서하실 것이다.
 누가복음 6:37
 
+[![Video Label](http://img.youtube.com/vi/bBHrU9cRFuw/0.jpg)](https://www.youtube.com/watch?v=bBHrU9cRFuw)
+
 [![Video Label](http://img.youtube.com/vi/XYxqmtCcblE/0.jpg)](https://www.youtube.com/watch?v=XYxqmtCcblE)
 
 
