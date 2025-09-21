@@ -39,26 +39,39 @@
 
 https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
+
 [![Video Label](http://img.youtube.com/vi/XYxqmtCcblE/0.jpg)](https://www.youtube.com/watch?v=XYxqmtCcblE)
 
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/c8D2SB19txI/0.jpg)](https://www.youtube.com/watch?v=c8D2SB19txI)
+
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/zupxnJDPi7w/0.jpg)](https://www.youtube.com/watch?v=zupxnJDPi7w)
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
+
 [![Video Label](http://img.youtube.com/vi/OTZHtN0YqTI/0.jpg)](https://www.youtube.com/watch?v=OTZHtN0YqTI)
 
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/rwGmyHYcX10/0.jpg)](https://www.youtube.com/watch?v=rwGmyHYcX10)
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
+
 [![Video Label](http://img.youtube.com/vi/RtIdi5DzV7k/0.jpg)](https://www.youtube.com/watch?v=RtIdi5DzV7k)
+
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/-jR0ljmGzf8/0.jpg)](https://www.youtube.com/watch?v=-jR0ljmGzf8)
 
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/rqvRRzMq7sU/0.jpg)](https://www.youtube.com/watch?v=rqvRRzMq7sU)
 
