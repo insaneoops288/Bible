@@ -60,7 +60,7 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
-< 아래 동영상을 클릭해서 재생시켜 보세요. >
+- 업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/RtIdi5DzV7k/0.jpg)](https://www.youtube.com/watch?v=RtIdi5DzV7k)
 
