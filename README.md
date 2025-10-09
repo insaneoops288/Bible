@@ -33,10 +33,12 @@
 누가복음 6:37
 
 - 깃허브에서 읽어주는 성경을 설치하는 방법입니다. 종전에 이미 읽어주는 성경이 설치되어 있다면 압축파일을 다운으로 받아서 종전에 폴더에 덮어쓰기 하시면 됩니다. 
+
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
+- 성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/XYxqmtCcblE/0.jpg)](https://www.youtube.com/watch?v=XYxqmtCcblE)
