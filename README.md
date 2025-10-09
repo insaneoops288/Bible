@@ -64,11 +64,11 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
 [![Video Label](http://img.youtube.com/vi/RtIdi5DzV7k/0.jpg)](https://www.youtube.com/watch?v=RtIdi5DzV7k)
 
-< 아래 동영상을 클릭해서 재생시켜 보세요. >
+- 영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/-jR0ljmGzf8/0.jpg)](https://www.youtube.com/watch?v=-jR0ljmGzf8)
 
-< 아래 동영상을 클릭해서 재생시켜 보세요. >
+- 자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/rqvRRzMq7sU/0.jpg)](https://www.youtube.com/watch?v=rqvRRzMq7sU)
 
