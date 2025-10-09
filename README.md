@@ -41,7 +41,7 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
 [![Video Label](http://img.youtube.com/vi/XYxqmtCcblE/0.jpg)](https://www.youtube.com/watch?v=XYxqmtCcblE)
 
-< 아래 동영상을 클릭해서 재생시켜 보세요. >
+- 선택된 성경의 각 장들을 선택할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/c8D2SB19txI/0.jpg)](https://www.youtube.com/watch?v=c8D2SB19txI)
 
