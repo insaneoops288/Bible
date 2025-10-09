@@ -54,7 +54,7 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
 [![Video Label](http://img.youtube.com/vi/OTZHtN0YqTI/0.jpg)](https://www.youtube.com/watch?v=OTZHtN0YqTI)
 
-< 아래 동영상을 클릭해서 재생시켜 보세요. >
+- 선택한 성경에서 특정 단어로 검색이 가능합니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 [![Video Label](http://img.youtube.com/vi/rwGmyHYcX10/0.jpg)](https://www.youtube.com/watch?v=rwGmyHYcX10)
 
