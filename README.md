@@ -76,4 +76,6 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
 [![Video Label](http://img.youtube.com/vi/rqvRRzMq7sU/0.jpg)](https://www.youtube.com/watch?v=rqvRRzMq7sU)
 
+# 이 모든 말씀 살아계신 하나님 아버지의 아들이시며 구세주이신 예수님의 이름으로 진실되게 기도드립니다. !!
+
 
