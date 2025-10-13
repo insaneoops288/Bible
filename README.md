@@ -73,39 +73,39 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
 - 성경의 내용을 한글과 영어로 읽어줄 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/XYxqmtCcblE/0.jpg)](https://www.youtube.com/watch?v=XYxqmtCcblE)
+https://www.youtube.com/watch?v=XYxqmtCcblE
 
 - 선택된 성경의 각 장들을 선택할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/c8D2SB19txI/0.jpg)](https://www.youtube.com/watch?v=c8D2SB19txI)
+https://www.youtube.com/watch?v=c8D2SB19txI
 
 - 각 장들에 포함된 모든 절을 순서적으로 읽어줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/zupxnJDPi7w/0.jpg)](https://www.youtube.com/watch?v=zupxnJDPi7w)
+https://www.youtube.com/watch?v=zupxnJDPi7w
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
 - 자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/OTZHtN0YqTI/0.jpg)](https://www.youtube.com/watch?v=OTZHtN0YqTI)
+https://www.youtube.com/watch?v=OTZHtN0YqTI
 
 - 선택한 성경에서 특정 단어로 검색이 가능합니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/rwGmyHYcX10/0.jpg)](https://www.youtube.com/watch?v=rwGmyHYcX10)
+https://www.youtube.com/watch?v=rwGmyHYcX10
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
 - 업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/RtIdi5DzV7k/0.jpg)](https://www.youtube.com/watch?v=RtIdi5DzV7k)
+https://www.youtube.com/watch?v=RtIdi5DzV7k
 
 - 영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/-jR0ljmGzf8/0.jpg)](https://www.youtube.com/watch?v=-jR0ljmGzf8)
+https://www.youtube.com/watch?v=-jR0ljmGzf8
 
 - 자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-[![Video Label](http://img.youtube.com/vi/rqvRRzMq7sU/0.jpg)](https://www.youtube.com/watch?v=rqvRRzMq7sU)
+https://www.youtube.com/watch?v=rqvRRzMq7sU
 
 - 이 모든 말씀 살아계신 하나님 아버지의 아들이시며 구세주이신 예수님의 이름으로 진실되게 기도드립니다. !!
 
