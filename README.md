@@ -97,6 +97,8 @@ https://www.youtube.com/watch?v=zupxnJDPi7w
 
 https://www.youtube.com/watch?v=OTZHtN0YqTI
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
+
 - 선택한 성경에서 특정 단어로 검색이 가능합니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=rwGmyHYcX10
