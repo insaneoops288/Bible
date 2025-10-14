@@ -72,7 +72,7 @@ https://github.com/insaneoops288/Bible
 
 https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="150"> 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
 - 성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 6가지를 선택해서 읽어줄 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
