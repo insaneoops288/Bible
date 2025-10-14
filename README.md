@@ -79,8 +79,8 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 https://www.youtube.com/watch?v=XYxqmtCcblE
 
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 - 선택된 성경의 각 장들을 선택할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=c8D2SB19txI
@@ -105,10 +105,12 @@ https://www.youtube.com/watch?v=rwGmyHYcX10
 
 https://www.youtube.com/watch?v=RtIdi5DzV7k
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="150"> 
 - 영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=-jR0ljmGzf8
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="150"> 
 - 자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=rqvRRzMq7sU
