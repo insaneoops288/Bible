@@ -78,6 +78,9 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
 https://www.youtube.com/watch?v=XYxqmtCcblE
 
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
 - 선택된 성경의 각 장들을 선택할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=c8D2SB19txI
