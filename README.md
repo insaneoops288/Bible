@@ -4,6 +4,8 @@
 
 https://github.com/insaneoops288/Bible
 
+- 한글성경 4종류, 영어성경 6종류를 장별로 읽어줄 수 있는 읽어주는 성경입니다. 
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
@@ -65,16 +67,19 @@ https://youtu.be/lIp1zDatOfw
 
 https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 
+- 성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 6가지를 선택해서 읽어줄 수 있습니다.
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="300"> 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
-- 성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 6가지를 선택해서 읽어줄 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=XYxqmtCcblE
 
+- 선택된 성경의 각 장들을 선택할 수 있습니다.
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
-- 선택된 성경의 각 장들을 선택할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=c8D2SB19txI
 
@@ -82,31 +87,43 @@ https://www.youtube.com/watch?v=c8D2SB19txI
 
 https://www.youtube.com/watch?v=zupxnJDPi7w
 
+
+- 자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
-- 자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=OTZHtN0YqTI
 
+
+- 선택한 성경에서 특정 단어로 검색이 가능합니다.
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
 
-- 선택한 성경에서 특정 단어로 검색이 가능합니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=rwGmyHYcX10
 
+- 업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.
+  
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
-- 업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=RtIdi5DzV7k
 
+- 영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다.
+  
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="150"> 
-- 영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=-jR0ljmGzf8
 
+- 자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다. 
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="150"> 
-- 자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=rqvRRzMq7sU
 
