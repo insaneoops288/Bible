@@ -4,6 +4,8 @@
 
 https://github.com/insaneoops288/Bible
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
+
 - 기도는 하나님과의 대화, 하나님의 자식으로써 아버지와의 대화, 하나님께 순종, 예수님께 순종
 
 저는 하나님 아버지의 자녀입니다. 
