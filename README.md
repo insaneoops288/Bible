@@ -87,7 +87,6 @@ https://www.youtube.com/watch?v=c8D2SB19txI
 
 https://www.youtube.com/watch?v=zupxnJDPi7w
 
-
 - 자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
@@ -95,7 +94,6 @@ https://www.youtube.com/watch?v=zupxnJDPi7w
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=OTZHtN0YqTI
-
 
 - 선택한 성경에서 특정 단어로 검색이 가능합니다.
 
