@@ -119,6 +119,6 @@ https://www.youtube.com/watch?v=-jR0ljmGzf8
 
 https://www.youtube.com/watch?v=rqvRRzMq7sU
 
-- 이 모든 말씀 살아계신 하나님 아버지의 아들이시며 구세주이신 예수님의 이름으로 진실되게 기도드립니다. !!
+- 이 모든 말씀 살아계신 하나님 아버지의 아들이시며 구세주이신 예수님의 이름으로 기도드립니다. 아멘 !!
 
 
