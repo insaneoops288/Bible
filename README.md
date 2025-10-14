@@ -4,7 +4,7 @@
 
 https://github.com/insaneoops288/Bible
 
-- 한글성경 4종류, 영어성경 6종류를 장별로 읽어줄 수 있는 읽어주는 성경입니다. 
+- 한글성경 4종류, 영어성경 6종류를 챕터별로 읽어줄 수 있는 읽어주는 성경입니다. 
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
 
