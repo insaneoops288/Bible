@@ -7,6 +7,7 @@ https://github.com/insaneoops288/Bible
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
+
 https://youtu.be/lIp1zDatOfw
 
 - 기도는 하나님과의 대화, 하나님의 자식으로써 아버지와의 대화, 하나님께 순종, 예수님께 순종
