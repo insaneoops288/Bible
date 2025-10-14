@@ -6,6 +6,9 @@ https://github.com/insaneoops288/Bible
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
 
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
+https://youtu.be/lIp1zDatOfw
+
 - 기도는 하나님과의 대화, 하나님의 자식으로써 아버지와의 대화, 하나님께 순종, 예수님께 순종
 
 저는 하나님 아버지의 자녀입니다. 
@@ -73,8 +76,6 @@ https://github.com/insaneoops288/Bible
 - 깃허브에서 읽어주는 성경을 설치하는 방법입니다. 종전에 이미 읽어주는 성경이 설치되어 있다면 압축파일을 다운으로 받아서 종전에 폴더에 덮어쓰기 하시면 됩니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
-
-https://youtu.be/lIp1zDatOfw
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="300"> 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
