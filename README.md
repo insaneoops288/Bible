@@ -73,7 +73,7 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-https://www.youtube.com/watch?v=XYxqmtCcblE
+https://www.youtube.com/watch?v=SwbN91-IGbg
 
 - 선택된 성경의 각 장들을 선택할 수 있습니다.
 
@@ -81,7 +81,7 @@ https://www.youtube.com/watch?v=XYxqmtCcblE
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-https://www.youtube.com/watch?v=c8D2SB19txI
+https://www.youtube.com/watch?v=lrVuRImiRyc
 
 - 각 장들에 포함된 모든 절을 순서적으로 읽어줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
