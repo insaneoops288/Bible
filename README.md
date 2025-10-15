@@ -14,6 +14,14 @@ https://www.youtube.com/watch?v=lIp1zDatOfw&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_
 
 https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1
 
+- 은혜로운 소중한 말씀을 먼저 들어봅니다.
+
+ < 아래 동영상을 클릭해서 재생시켜 보세요. >
+
+ https://youtu.be/4-PXLkdnKk4
+
+ https://youtu.be/MkIwXEMpSes	
+
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
 - 내가 너희를 사랑한 것처럼 서로 사랑해라. 너가 나를 사랑한다면 내 개명을 지킬것이다
