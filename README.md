@@ -10,7 +10,7 @@ https://github.com/insaneoops288/Bible
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-https://youtu.be/lIp1zDatOfw
+https://www.youtube.com/watch?v=lIp1zDatOfw&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
