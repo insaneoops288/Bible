@@ -17,10 +17,6 @@ https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZ
 - 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
  < 아래 동영상을 클릭해서 재생시켜 보세요. >
- 
-교회만 다닌다고 천국 가는 것이 아니었습니다.
-
-https://youtu.be/4-PXLkdnKk4		
 
 성경에 행복이란 말은 없습니다
 
@@ -33,6 +29,10 @@ https://youtu.be/sghnbZtqsR4
 우리는 회개를 완전히 착각하고 있습니다
 
 https://youtu.be/2SZD9dk0IUY		
+
+교회만 다닌다고 천국 가는 것이 아니었습니다.
+
+https://youtu.be/4-PXLkdnKk4		
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
