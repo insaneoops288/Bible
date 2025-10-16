@@ -30,6 +30,10 @@ https://youtu.be/sghnbZtqsR4
 
 https://youtu.be/2SZD9dk0IUY		
 
+우리가 당연하게 믿고있지만,성경에는 없는 6가지 거짓말
+
+https://youtu.be/0Iw2t5FgNQ0		
+
 교회만 다닌다고 천국 가는 것이 아니었습니다.
 
 https://youtu.be/4-PXLkdnKk4		
