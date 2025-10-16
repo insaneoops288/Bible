@@ -18,10 +18,6 @@ https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZ
 
  < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-성경에 행복이란 말은 없습니다
-
-https://youtu.be/MkIwXEMpSes		
-
 주일예배에 참석한다고 구원받을수 없습니다 
 
 https://youtu.be/sghnbZtqsR4		
