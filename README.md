@@ -22,6 +22,10 @@ https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZ
 
 https://youtu.be/sghnbZtqsR4		
 
+수많은 크리스찬들이 속고 있는 믿음이라 착각하는 미신들
+
+https://youtu.be/Q8cguMSxC4Q
+
 우리는 회개를 완전히 착각하고 있습니다
 
 https://youtu.be/2SZD9dk0IUY		
