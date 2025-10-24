@@ -18,29 +18,127 @@ https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZ
 
  < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-주일예배에 참석한다고 구원받을수 없습니다 
 
-https://youtu.be/sghnbZtqsR4		
+하나님을 사랑한다는 착각
 
-수많은 크리스찬들이 속고 있는 믿음이라 착각하는 미신들
-
-https://youtu.be/Q8cguMSxC4Q
-
-우리는 회개를 완전히 착각하고 있습니다
-
-https://youtu.be/2SZD9dk0IUY		
-
-우리가 당연하게 믿고있지만,성경에는 없는 6가지 거짓말
-
-https://youtu.be/0Iw2t5FgNQ0		
+https://youtu.be/9qPhCBnFjFc		
 
 교회만 다닌다고 천국 가는 것이 아니었습니다.
 
 https://youtu.be/4-PXLkdnKk4		
 
+주일예배에 참석한다고 구원받을수 없습니다 
+
+https://youtu.be/sghnbZtqsR4		
+
+"봉사보다 중요한 것, 하나님이 진짜 원하시는 5가지" 
+
+https://youtu.be/LjuI1vXIZlk		
+
+성경에 행복이란 말은 없습니다
+
+https://youtu.be/MkIwXEMpSes		
+
+내가 구원을 받았는지 아닌지 아는 방법 (구원받은 자의 6가지 특징)
+
+https://youtu.be/JrMHMoHlVW4	
+
+천국을 가기 위해 진짜 신경 써야 할 것들
+
+https://youtu.be/VjcilUF2npA		
+
+예수님을 믿는 자만이 누릴 수 있는 7가지 기적
+
+https://youtu.be/vZIbMUMrFZQ		
+
+마지막 날, 천국갈 수 있는 사람 특징 7가지ㅣ이런사람만 천국갑니다
+
+https://youtu.be/UnRCbOOd-Eg		
+
+하나님이 천국에 들이시는 사람 4가지 특징
+
+https://youtu.be/X4nqA74gfko		
+
+하나님이 기뻐하시는 예배자의 태도 4가지｜영과 진리·겸손·온전한 헌신·기쁨과 감사
+
+https://youtu.be/pteXlxOFQ4g		
+
+우리는 회개를 완전히 착각하고 있습니다
+
+https://youtu.be/2SZD9dk0IUY		
+
 가장 가슴 아픈 주제 '십일조', 시한부 목사님의 마지막 사명의 설교..그리고 마지막 회개
 
 https://youtu.be/BccGraKrWIk		
+
+십일조와 헌금에 대한 모든것
+
+https://youtu.be/RV0ue8uITFY		
+
+십일조는 죄인가? 성경적 진실
+
+https://youtu.be/J50uXIFSxik		
+
+성경에서 말한 지옥, 잘못된 교리로 공포에 떨고있는 성도들에게 성경적 진실을 전하는 사명을 예수님께서 직접 가르쳐 주셨습니다
+
+https://youtu.be/3rcq-l2Xeks		
+
+목사님들이 절대 말 안 하는 디모데전서의 진실
+
+https://youtu.be/i2tGEAvEazg		
+
+하나님은 착한 사람보다 '이런 사람'을 더 원하십니다
+
+https://youtu.be/N7s8AgHfKj8		
+
+우리가 당연하게 믿고있지만,성경에는 없는 6가지 거짓말	
+
+https://youtu.be/0Iw2t5FgNQ0		
+
+지옥에서 들은 진실, 한 여인이 전하는 믿음의 이야기
+
+https://youtu.be/GFjhbQ1CHKU		
+
+하나님도 거절하시는 기도의 5가지 유형
+
+https://youtu.be/Yu-lp5lTf3E		
+
+나를 힘들게 하는 사람, 하나님은 그 사람을 통해 나를 변화 시키십니다	
+
+https://youtu.be/MspsV9tUDak		
+
+주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다
+
+https://youtu.be/4jaeZ28YgTw		
+
+이렇게 주기도문을 기도하세요 기적이 일어납니다 하나님이 알려주신 완벽한 기도의 가르침 
+
+https://youtu.be/wopvK5ygiCo		
+
+음주운전 차량에 치여 17분간 죽었던 목사님이 본 충격적 진실! 지옥→천국 체험 후 예수님이 주신 한마디"
+
+https://youtu.be/0tzzITmPfWc		
+
+교회 안 나가면 죄일까 예수님이 세우신 ‘교회’의 진짜 의미
+
+https://youtu.be/6Nrg-UQAD04		
+
+시험을 이기는 하나님의 3가지말씀. 시험 당할 때, 이 시험은 하나님께서 허락하신 것입니다.
+
+https://youtu.be/VNonYp8_-J0		
+
+병자를 위한 기도문을 예수님께서 5가지 원칙을 알려주셨습니다.
+
+https://youtu.be/TsSP_nuR2RI		
+
+약으로 낫지 않는 상처, 말씀으로 회복 됩니다
+
+https://youtu.be/YZj-oUVNKIo		
+
+수많은 크리스찬들이 속고 있는 믿음이라 착각하는 미신들
+
+https://youtu.be/Q8cguMSxC4Q		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
