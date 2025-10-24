@@ -139,6 +139,18 @@ https://youtu.be/YZj-oUVNKIo
 
 https://youtu.be/Q8cguMSxC4Q		
 
+천국가는 자는 적다 그러나 대부흥이 온다
+
+https://youtu.be/tz2vKcP-KdY		
+
+사랑은 모든 것을 이긴다
+
+https://youtu.be/O5kaIpTXiWc		
+
+당장 '이 말을' 하세요ㅣ99% 기독교인이 모르는 성령님이 즉시 역사하시는 한마디	
+
+https://youtu.be/vV5VoW4n25I		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
