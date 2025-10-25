@@ -171,6 +171,14 @@ https://youtu.be/NRfwywsdhaI
 
 https://youtu.be/OLiOoy_h-uU		
 
+회개할 때 반드시 붙들어야 할 '5가지 말씀
+
+https://youtu.be/afT2K0XY6ps		
+
+하나님이 기뻐하시는 예배자의 5가지 특징
+
+https://youtu.be/OnrDPOrv91E		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
