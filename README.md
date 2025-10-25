@@ -159,6 +159,14 @@ https://youtu.be/V0sP_6v8c-4
 
 https://youtu.be/ojc0XFcRqRw		
 
+평생 기도했는데 왜 응답이 없을까? 몰랐던 기도의 비밀 5가지
+
+https://youtu.be/v4vAlU-dZjc		
+
+끝까지 견딘 사람에게만 주어지는 하나님의 특별한 보상
+
+https://youtu.be/NRfwywsdhaI		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
