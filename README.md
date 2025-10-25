@@ -18,6 +18,9 @@ https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZ
 
  < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
+지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사
+
+https://youtu.be/x3PPJWCDTvg		
 
 하나님을 사랑한다는 착각
 
@@ -182,6 +185,10 @@ https://youtu.be/OnrDPOrv91E
 믿음으로 기도하면 반드시 회복되는 6가지
 
 https://youtu.be/cZb0Chsb_AI		
+
+하나님이 진정 기뻐하시는 기도는 '이런 기도' 입니다
+
+https://youtu.be/aMSHL01XH34		
 
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
