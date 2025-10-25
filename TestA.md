@@ -167,6 +167,10 @@ https://youtu.be/v4vAlU-dZjc
 
 https://youtu.be/NRfwywsdhaI		
 
+기도는 말을 잘 하는게 아닙니다.기도의 7가지 비밀
+
+https://youtu.be/OLiOoy_h-uU		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
