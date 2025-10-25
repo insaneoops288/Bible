@@ -179,6 +179,10 @@ https://youtu.be/afT2K0XY6ps
 
 https://youtu.be/OnrDPOrv91E		
 
+믿음으로 기도하면 반드시 회복되는 6가지
+
+https://youtu.be/cZb0Chsb_AI		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
