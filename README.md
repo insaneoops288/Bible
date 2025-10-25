@@ -155,6 +155,10 @@ https://youtu.be/vV5VoW4n25I
 
 https://youtu.be/V0sP_6v8c-4		
 
+이렇게 성경 읽으면 천국 못 갑니다
+
+https://youtu.be/ojc0XFcRqRw		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
