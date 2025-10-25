@@ -190,6 +190,10 @@ https://youtu.be/cZb0Chsb_AI
 
 https://youtu.be/aMSHL01XH34		
 
+복음을 잘못 이해할 때 생기는 치명적 결과
+
+https://youtu.be/YFThYJmzFNo		
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
