@@ -334,7 +334,7 @@ https://www.youtube.com/watch?v=-jR0ljmGzf8
 https://www.youtube.com/watch?v=rqvRRzMq7sU
 
 - Youtube에서 성경관련 좋은 내용과 간증들을 모았습니다. 
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible012.png" width="150"> 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
 https://youtu.be/F2uE7Lpsg8M
