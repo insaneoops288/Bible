@@ -226,6 +226,14 @@ https://youtu.be/f9R3jdMErBw
 
 https://youtu.be/eCVvC6-astA		
 
+성령님이 가장 기뻐하시는 고백 10가지
+
+https://youtu.be/lJ-aDa3LLr0		
+
+좋은 목사, 위험한 목사 구별법	
+
+https://youtu.be/sSdA0M03cXs		
+
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
 - 내가 너희를 사랑한 것처럼 서로 사랑해라. 너가 나를 사랑한다면 내 개명을 지킬것이다
