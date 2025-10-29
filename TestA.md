@@ -179,41 +179,40 @@
 
 - **[깃허브에서 읽어주는 성경을 설치하는 방법입니다. 종전에 이미 읽어주는 성경이 설치되어 있다면 압축파일을 다운으로 받아서 종전에 폴더에 덮어쓰기 하시면 됩니다.](https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s)**
 
+- **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 6가지를 선택해서 읽어줄 수 있습니다.](https://www.youtube.com/watch?v=SwbN91-IGbg)**
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="300"> 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
 
-- **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 6가지를 선택해서 읽어줄 수 있습니다.](https://www.youtube.com/watch?v=SwbN91-IGbg)**
-  
+- **[선택된 성경의 각 장들을 선택할 수 있습니다.](https://www.youtube.com/watch?v=lrVuRImiRyc)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 
-- **[선택된 성경의 각 장들을 선택할 수 있습니다.](https://www.youtube.com/watch?v=lrVuRImiRyc)**
-
 - **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://www.youtube.com/watch?v=LzDALibL9fI)**
-
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
 - **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.](https://www.youtube.com/watch?v=OTZHtN0YqTI)**
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
 - **[선택한 성경에서 특정 단어로 검색이 가능합니다.](https://www.youtube.com/watch?v=rwGmyHYcX10)**
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
 
 - **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.](https://www.youtube.com/watch?v=RtIdi5DzV7k)**
-
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="150"> 
+  
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
 - **[영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다.](https://www.youtube.com/watch?v=-jR0ljmGzf8)**
-
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="150"> 
+  
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="150"> 
 
 - **[자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다.](https://www.youtube.com/watch?v=rqvRRzMq7sU)**
-
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible012.png" width="150">
+  
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="150"> 
 
 - **[Youtube에서 성경관련 좋은 내용과 간증들을 모았습니다. ](https://youtu.be/F2uE7Lpsg8M)**
+  
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible012.png" width="150">
   
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible013.png" > 
 
