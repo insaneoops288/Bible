@@ -203,17 +203,17 @@
 
 - **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.](https://www.youtube.com/watch?v=RtIdi5DzV7k)**
 
+- **[영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다.](https://www.youtube.com/watch?v=-jR0ljmGzf8)**
+  
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="150"> 
 
-- **[영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다.](https://www.youtube.com/watch?v=-jR0ljmGzf8)**
-
+- **[자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다.](https://www.youtube.com/watch?v=rqvRRzMq7sU)**
+  
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="150"> 
 
-- **[자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다.](https://www.youtube.com/watch?v=rqvRRzMq7sU)**
-
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible012.png" width="150">
-
 - **[Youtube에서 성경관련 좋은 내용과 간증들을 모았습니다. ](https://youtu.be/F2uE7Lpsg8M)**
+  
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible012.png" width="150">
   
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible013.png" > 
 
