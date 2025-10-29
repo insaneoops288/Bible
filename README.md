@@ -191,16 +191,16 @@
 
 - **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://www.youtube.com/watch?v=LzDALibL9fI)**
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
-
 - **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.](https://www.youtube.com/watch?v=OTZHtN0YqTI)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
 - **[선택한 성경에서 특정 단어로 검색이 가능합니다.](https://www.youtube.com/watch?v=rwGmyHYcX10)**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
 
 - **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.](https://www.youtube.com/watch?v=RtIdi5DzV7k)**
-- 
+  
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
 - **[영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다.](https://www.youtube.com/watch?v=-jR0ljmGzf8)**
