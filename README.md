@@ -16,226 +16,205 @@
 
  < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-- 
-지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사
+- **[지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사](https://youtu.be/x3PPJWCDTvg)**
 
-https://youtu.be/x3PPJWCDTvg		
+- **[하나님을 사랑한다는 착각](https://youtu.be/9qPhCBnFjFc)**
 
-하나님을 사랑한다는 착각
+- **[교회만 다닌다고 천국 가는 것이 아니었습니다.](https://youtu.be/4-PXLkdnKk4)**
 
-https://youtu.be/9qPhCBnFjFc		
+- **[주일예배에 참석한다고 구원받을수 없습니다 ](https://youtu.be/sghnbZtqsR4)**
+		
+- **[봉사보다 중요한 것, 하나님이 진짜 원하시는 5가지](https://youtu.be/LjuI1vXIZlk)**		
+- **[성경에 행복이란 말은 없습니다](https://youtu.be/MkIwXEMpSes)**		
 
-교회만 다닌다고 천국 가는 것이 아니었습니다.
+- **[내가 구원을 받았는지 아닌지 아는 방법 (구원받은 자의 6가지 특징)](https://youtu.be/JrMHMoHlVW4)**	
 
-https://youtu.be/4-PXLkdnKk4		
+- **[천국을 가기 위해 진짜 신경 써야 할 것들](https://youtu.be/VjcilUF2npA)**		
 
-주일예배에 참석한다고 구원받을수 없습니다 
-
-https://youtu.be/sghnbZtqsR4		
-
-"봉사보다 중요한 것, 하나님이 진짜 원하시는 5가지" 
-
-https://youtu.be/LjuI1vXIZlk		
-
-성경에 행복이란 말은 없습니다
-
-https://youtu.be/MkIwXEMpSes		
-
-내가 구원을 받았는지 아닌지 아는 방법 (구원받은 자의 6가지 특징)
-
-https://youtu.be/JrMHMoHlVW4	
-
-천국을 가기 위해 진짜 신경 써야 할 것들
-
-https://youtu.be/VjcilUF2npA		
-
-예수님을 믿는 자만이 누릴 수 있는 7가지 기적
-
-https://youtu.be/vZIbMUMrFZQ		
+- **[예수님을 믿는 자만이 누릴 수 있는 7가지 기적](https://youtu.be/vZIbMUMrFZQ)**		
 
 마지막 날, 천국갈 수 있는 사람 특징 7가지ㅣ이런사람만 천국갑니다
-
+- **[]()**
 https://youtu.be/UnRCbOOd-Eg		
 
 하나님이 천국에 들이시는 사람 4가지 특징
-
+- **[]()**
 https://youtu.be/X4nqA74gfko		
 
 하나님이 기뻐하시는 예배자의 태도 4가지｜영과 진리·겸손·온전한 헌신·기쁨과 감사
-
+- **[]()**
 https://youtu.be/pteXlxOFQ4g		
 
 우리는 회개를 완전히 착각하고 있습니다
-
+- **[]()**
 https://youtu.be/2SZD9dk0IUY		
 
 가장 가슴 아픈 주제 '십일조', 시한부 목사님의 마지막 사명의 설교..그리고 마지막 회개
-
+- **[]()**
 https://youtu.be/BccGraKrWIk		
 
 십일조와 헌금에 대한 모든것
-
+- **[]()**
 https://youtu.be/RV0ue8uITFY		
 
 십일조는 죄인가? 성경적 진실
-
+- **[]()**
 https://youtu.be/J50uXIFSxik		
 
 성경에서 말한 지옥, 잘못된 교리로 공포에 떨고있는 성도들에게 성경적 진실을 전하는 사명을 예수님께서 직접 가르쳐 주셨습니다
-
+- **[]()**
 https://youtu.be/3rcq-l2Xeks		
 
 목사님들이 절대 말 안 하는 디모데전서의 진실
-
+- **[]()**
 https://youtu.be/i2tGEAvEazg		
 
 하나님은 착한 사람보다 '이런 사람'을 더 원하십니다
-
+- **[]()**
 https://youtu.be/N7s8AgHfKj8		
 
 우리가 당연하게 믿고있지만,성경에는 없는 6가지 거짓말	
-
+- **[]()**
 https://youtu.be/0Iw2t5FgNQ0		
 
 지옥에서 들은 진실, 한 여인이 전하는 믿음의 이야기
-
+- **[]()**
 https://youtu.be/GFjhbQ1CHKU		
 
 하나님도 거절하시는 기도의 5가지 유형
-
+- **[]()**
 https://youtu.be/Yu-lp5lTf3E		
 
 나를 힘들게 하는 사람, 하나님은 그 사람을 통해 나를 변화 시키십니다	
-
+- **[]()**
 https://youtu.be/MspsV9tUDak		
 
 주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다
-
+- **[]()**
 https://youtu.be/4jaeZ28YgTw		
 
 이렇게 주기도문을 기도하세요 기적이 일어납니다 하나님이 알려주신 완벽한 기도의 가르침 
-
+- **[]()**
 https://youtu.be/wopvK5ygiCo		
 
-음주운전 차량에 치여 17분간 죽었던 목사님이 본 충격적 진실! 지옥→천국 체험 후 예수님이 주신 한마디"
-
+음주운전 차량에 치여 17분간 죽었던 목사님이 본 충격적 진실! 
+- **[]()**
 https://youtu.be/0tzzITmPfWc		
 
 교회 안 나가면 죄일까 예수님이 세우신 ‘교회’의 진짜 의미
-
+- **[]()**
 https://youtu.be/6Nrg-UQAD04		
 
 시험을 이기는 하나님의 3가지말씀. 시험 당할 때, 이 시험은 하나님께서 허락하신 것입니다.
-
+- **[]()**
 https://youtu.be/VNonYp8_-J0		
 
 병자를 위한 기도문을 예수님께서 5가지 원칙을 알려주셨습니다.
-
+- **[]()**
 https://youtu.be/TsSP_nuR2RI		
 
 약으로 낫지 않는 상처, 말씀으로 회복 됩니다
-
+- **[]()**
 https://youtu.be/YZj-oUVNKIo		
 
 수많은 크리스찬들이 속고 있는 믿음이라 착각하는 미신들
-
+- **[]()**
 https://youtu.be/Q8cguMSxC4Q		
 
 천국가는 자는 적다 그러나 대부흥이 온다
-
+- **[]()**
 https://youtu.be/tz2vKcP-KdY		
 
 사랑은 모든 것을 이긴다
-
+- **[]()**
 https://youtu.be/O5kaIpTXiWc		
 
 당장 '이 말을' 하세요ㅣ99% 기독교인이 모르는 성령님이 즉시 역사하시는 한마디	
-
+- **[]()**
 https://youtu.be/vV5VoW4n25I		
 
 십자가 위의 마지막 일곱 마디ㅣ예수님이 남기신 영원한 사랑의 메시지
-
+- **[]()**
 https://youtu.be/V0sP_6v8c-4		
 
 이렇게 성경 읽으면 천국 못 갑니다
-
+- **[]()**
 https://youtu.be/ojc0XFcRqRw		
 
 평생 기도했는데 왜 응답이 없을까? 몰랐던 기도의 비밀 5가지
-
+- **[]()**
 https://youtu.be/v4vAlU-dZjc		
 
 끝까지 견딘 사람에게만 주어지는 하나님의 특별한 보상
-
+- **[]()**
 https://youtu.be/NRfwywsdhaI		
 
 기도는 말을 잘 하는게 아닙니다.기도의 7가지 비밀
-
+- **[]()**
 https://youtu.be/OLiOoy_h-uU		
 
 회개할 때 반드시 붙들어야 할 '5가지 말씀
-
+- **[]()**
 https://youtu.be/afT2K0XY6ps		
 
 하나님이 기뻐하시는 예배자의 5가지 특징
-
+- **[]()**
 https://youtu.be/OnrDPOrv91E		
 
 믿음으로 기도하면 반드시 회복되는 6가지
-
+- **[]()**
 https://youtu.be/cZb0Chsb_AI		
 
 하나님이 진정 기뻐하시는 기도는 '이런 기도' 입니다
-
+- **[]()**
 https://youtu.be/aMSHL01XH34		
 
 복음을 잘못 이해할 때 생기는 치명적 결과
-
+- **[]()**
 https://youtu.be/YFThYJmzFNo		
 
 성령 없는 부흥의 진짜 실체｜지금 교회가 무너지고 있는 이유
-
+- **[]()**
 https://youtu.be/deci444wquk		
 
 진짜 성령이란 무엇인가? 성령의 임재를 확인하는 7가지
-
+- **[]()**
 https://youtu.be/Oru8c0T8Umk		
 
-죽음 대신 기도를 택한 그때 하나님이 보내주신 사람 | 인생의 끝자락에 서 있을 때 한 노숙자의 말이 그의 발걸음을 멈추게 했습니다.
-
+죽음 대신 기도를 택한 그때 하나님이 보내주신 사람
+- **[]()**
 https://youtu.be/aBwU3RnAvgg		
 
 성령님이 가장 기뻐하시는 사람의 특징 9가지ㅣ당신은 이 중 몇 개나 가지고 있나요?
-
+- **[]()**
 https://youtu.be/MR_w6vFOZcc		
 
 성령 충만한 사람에게서 공통으로 보이는 10가지 특징	
-
+- **[]()**
 https://youtu.be/HrdrYM8u2dE		
 
 네가 드린 헌금은 모른다는 하나님 - 십일조를 드리던 권사의 헌금이 외면당한 이유
-
+- **[]()**
 https://youtu.be/OfXpUSxhsNE		
 
 교회가 절대 말하지 않는 십일조의 숨겨진 진실 세 가지
-
+- **[]()**
 https://youtu.be/f9R3jdMErBw		
 
 진짜 목사는 이런 사람입니다｜당신의 교회는 어떻습니까?
-
+- **[]()**
 https://youtu.be/eCVvC6-astA		
 
 성령님이 가장 기뻐하시는 고백 10가지
-
+- **[]()**
 https://youtu.be/lJ-aDa3LLr0		
 
 좋은 목사, 위험한 목사 구별법	
-
+- **[]()**
 https://youtu.be/sSdA0M03cXs		
 
 성경은 우리에게 행복하라고 하지 않습니다. 복음이 진짜 우리에게 주는 것 
-
+- **[]()**
 https://youtu.be/f7cxArDIoyU		
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
