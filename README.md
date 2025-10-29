@@ -8,14 +8,16 @@
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-https://www.youtube.com/watch?v=lIp1zDatOfw&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1
+- **[표준새번역 성경](https://www.youtube.com/watch?v=lIp1zDatOfw&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1)**
 
-https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1
-
+- **[우리말 성경](https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1)**
+ 
 - 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
  < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
+- **[]()**
+- 
 지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사
 
 https://youtu.be/x3PPJWCDTvg		
