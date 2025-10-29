@@ -82,61 +82,33 @@
 
 - **[십자가 위의 마지막 일곱 마디ㅣ예수님이 남기신 영원한 사랑의 메시지](https://youtu.be/V0sP_6v8c-4)**		
 
-이렇게 성경 읽으면 천국 못 갑니다
-- **[]()**
-https://youtu.be/ojc0XFcRqRw		
+- **[이렇게 성경 읽으면 천국 못 갑니다](https://youtu.be/ojc0XFcRqRw)**		
 
-평생 기도했는데 왜 응답이 없을까? 몰랐던 기도의 비밀 5가지
-- **[]()**
-https://youtu.be/v4vAlU-dZjc		
+- **[평생 기도했는데 왜 응답이 없을까? 몰랐던 기도의 비밀 5가지](https://youtu.be/v4vAlU-dZjc)**		
 
-끝까지 견딘 사람에게만 주어지는 하나님의 특별한 보상
-- **[]()**
-https://youtu.be/NRfwywsdhaI		
+- **[끝까지 견딘 사람에게만 주어지는 하나님의 특별한 보상](https://youtu.be/NRfwywsdhaI)**		
 
-기도는 말을 잘 하는게 아닙니다.기도의 7가지 비밀
-- **[]()**
-https://youtu.be/OLiOoy_h-uU		
+- **[기도는 말을 잘 하는게 아닙니다.기도의 7가지 비밀](https://youtu.be/OLiOoy_h-uU)**		
 
-회개할 때 반드시 붙들어야 할 '5가지 말씀
-- **[]()**
-https://youtu.be/afT2K0XY6ps		
+- **[회개할 때 반드시 붙들어야 할 '5가지 말씀](https://youtu.be/afT2K0XY6ps)**		
 
-하나님이 기뻐하시는 예배자의 5가지 특징
-- **[]()**
-https://youtu.be/OnrDPOrv91E		
+- **[하나님이 기뻐하시는 예배자의 5가지 특징](https://youtu.be/OnrDPOrv91)**E		
 
-믿음으로 기도하면 반드시 회복되는 6가지
-- **[]()**
-https://youtu.be/cZb0Chsb_AI		
+- **[믿음으로 기도하면 반드시 회복되는 6가지](https://youtu.be/cZb0Chsb_AI)**		
 
-하나님이 진정 기뻐하시는 기도는 '이런 기도' 입니다
-- **[]()**
-https://youtu.be/aMSHL01XH34		
+- **[하나님이 진정 기뻐하시는 기도는 '이런 기도' 입니다](https://youtu.be/aMSHL01XH34)**		
 
-복음을 잘못 이해할 때 생기는 치명적 결과
-- **[]()**
-https://youtu.be/YFThYJmzFNo		
+- **[복음을 잘못 이해할 때 생기는 치명적 결과](https://youtu.be/YFThYJmzFNo)**		
 
-성령 없는 부흥의 진짜 실체｜지금 교회가 무너지고 있는 이유
-- **[]()**
-https://youtu.be/deci444wquk		
+- **[성령 없는 부흥의 진짜 실체｜지금 교회가 무너지고 있는 이유](https://youtu.be/deci444wquk)**		
 
-진짜 성령이란 무엇인가? 성령의 임재를 확인하는 7가지
-- **[]()**
-https://youtu.be/Oru8c0T8Umk		
+- **[진짜 성령이란 무엇인가? 성령의 임재를 확인하는 7가지](https://youtu.be/Oru8c0T8Umk)**		
 
-죽음 대신 기도를 택한 그때 하나님이 보내주신 사람
-- **[]()**
-https://youtu.be/aBwU3RnAvgg		
+- **[죽음 대신 기도를 택한 그때 하나님이 보내주신 사람](https://youtu.be/aBwU3RnAvgg)**		
 
-성령님이 가장 기뻐하시는 사람의 특징 9가지ㅣ당신은 이 중 몇 개나 가지고 있나요?
-- **[]()**
-https://youtu.be/MR_w6vFOZcc		
-
-성령 충만한 사람에게서 공통으로 보이는 10가지 특징	
-- **[]()**
-https://youtu.be/HrdrYM8u2dE		
+- **[성령님이 가장 기뻐하시는 사람의 특징 9가지ㅣ당신은 이 중 몇 개나 가지고 있나요?](https://youtu.be/MR_w6vFOZcc)**		
+	
+- **[성령 충만한 사람에게서 공통으로 보이는 10가지 특징](https://youtu.be/HrdrYM8u2dE)**		
 
 네가 드린 헌금은 모른다는 하나님 - 십일조를 드리던 권사의 헌금이 외면당한 이유
 - **[]()**
