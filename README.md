@@ -190,6 +190,8 @@
 
 - **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://www.youtube.com/watch?v=LzDALibL9fI)**
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible014.png" width="300"> 
+
 - **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.](https://www.youtube.com/watch?v=OTZHtN0YqTI)**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
