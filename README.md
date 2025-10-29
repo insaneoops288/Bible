@@ -32,110 +32,55 @@
 - **[천국을 가기 위해 진짜 신경 써야 할 것들](https://youtu.be/VjcilUF2npA)**		
 
 - **[예수님을 믿는 자만이 누릴 수 있는 7가지 기적](https://youtu.be/vZIbMUMrFZQ)**		
+- **[마지막 날, 천국갈 수 있는 사람 특징 7가지ㅣ이런사람만 천국갑니다](https://youtu.be/UnRCbOOd-Eg)**		
 
-마지막 날, 천국갈 수 있는 사람 특징 7가지ㅣ이런사람만 천국갑니다
-- **[]()**
-https://youtu.be/UnRCbOOd-Eg		
+- **[하나님이 천국에 들이시는 사람 4가지 특징](https://youtu.be/X4nqA74gfko)**
+		
+- **[하나님이 기뻐하시는 예배자의 태도 4가지｜영과 진리·겸손·온전한 헌신·기쁨과 감사](https://youtu.be/pteXlxOFQ4g)**		
 
-하나님이 천국에 들이시는 사람 4가지 특징
-- **[]()**
-https://youtu.be/X4nqA74gfko		
+- **[우리는 회개를 완전히 착각하고 있습니다](https://youtu.be/2SZD9dk0IUY)**		
 
-하나님이 기뻐하시는 예배자의 태도 4가지｜영과 진리·겸손·온전한 헌신·기쁨과 감사
-- **[]()**
-https://youtu.be/pteXlxOFQ4g		
+- **[가장 가슴 아픈 주제 '십일조', 시한부 목사님의 마지막 사명의 설교..그리고 마지막 회개](https://youtu.be/BccGraKrWIk)**		
 
-우리는 회개를 완전히 착각하고 있습니다
-- **[]()**
-https://youtu.be/2SZD9dk0IUY		
+- **[십일조와 헌금에 대한 모든것](https://youtu.be/RV0ue8uITFY)**		
 
-가장 가슴 아픈 주제 '십일조', 시한부 목사님의 마지막 사명의 설교..그리고 마지막 회개
-- **[]()**
-https://youtu.be/BccGraKrWIk		
+- **[십일조는 죄인가? 성경적 진실](https://youtu.be/J50uXIFSxik)**		
 
-십일조와 헌금에 대한 모든것
-- **[]()**
-https://youtu.be/RV0ue8uITFY		
+- **[성경에서 말한 지옥, 잘못된 교리로 공포에 떨고있는 성도들에게 성경적 진실을 전하는 사명을 예수님께서 직접 가르쳐 주셨습니다](https://youtu.be/3rcq-l2Xeks)**		
 
-십일조는 죄인가? 성경적 진실
-- **[]()**
-https://youtu.be/J50uXIFSxik		
+- **[목사님들이 절대 말 안 하는 디모데전서의 진실](https://youtu.be/i2tGEAvEazg)**		
+- **[하나님은 착한 사람보다 '이런 사람'을 더 원하십니다](https://youtu.be/N7s8AgHfKj8)**		
+	
+- **[우리가 당연하게 믿고있지만,성경에는 없는 6가지 거짓말](https://youtu.be/0Iw2t5FgNQ0)**		
 
-성경에서 말한 지옥, 잘못된 교리로 공포에 떨고있는 성도들에게 성경적 진실을 전하는 사명을 예수님께서 직접 가르쳐 주셨습니다
-- **[]()**
-https://youtu.be/3rcq-l2Xeks		
+- **[지옥에서 들은 진실, 한 여인이 전하는 믿음의 이야기](https://youtu.be/GFjhbQ1CHKU)**		
 
-목사님들이 절대 말 안 하는 디모데전서의 진실
-- **[]()**
-https://youtu.be/i2tGEAvEazg		
+- **[하나님도 거절하시는 기도의 5가지 유형](https://youtu.be/Yu-lp5lTf3E)**		
 
-하나님은 착한 사람보다 '이런 사람'을 더 원하십니다
-- **[]()**
-https://youtu.be/N7s8AgHfKj8		
+- **[나를 힘들게 하는 사람, 하나님은 그 사람을 통해 나를 변화 시키십니다](https://youtu.be/MspsV9tUDak)**		
 
-우리가 당연하게 믿고있지만,성경에는 없는 6가지 거짓말	
-- **[]()**
-https://youtu.be/0Iw2t5FgNQ0		
+- **[주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다](https://youtu.be/4jaeZ28YgTw)**		
+ 
+- **[이렇게 주기도문을 기도하세요 기적이 일어납니다 하나님이 알려주신 완벽한 기도의 가르침](https://youtu.be/wopvK5ygiCo)**		
+ 
+- **[음주운전 차량에 치여 17분간 죽었던 목사님이 본 충격적 진실!](https://youtu.be/0tzzITmPfWc)**		
 
-지옥에서 들은 진실, 한 여인이 전하는 믿음의 이야기
-- **[]()**
-https://youtu.be/GFjhbQ1CHKU		
+- **[교회 안 나가면 죄일까 예수님이 세우신 ‘교회’의 진짜 의미](https://youtu.be/6Nrg-UQAD04)**		
 
-하나님도 거절하시는 기도의 5가지 유형
-- **[]()**
-https://youtu.be/Yu-lp5lTf3E		
+- **[시험을 이기는 하나님의 3가지말씀. 시험 당할 때, 이 시험은 하나님께서 허락하신 것입니다.](https://youtu.be/VNonYp8_-J0)**		
 
-나를 힘들게 하는 사람, 하나님은 그 사람을 통해 나를 변화 시키십니다	
-- **[]()**
-https://youtu.be/MspsV9tUDak		
+- **[병자를 위한 기도문을 예수님께서 5가지 원칙을 알려주셨습니다.](https://youtu.be/TsSP_nuR2RI)**		
 
-주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다
-- **[]()**
-https://youtu.be/4jaeZ28YgTw		
+- **[약으로 낫지 않는 상처, 말씀으로 회복 됩니다](https://youtu.be/YZj-oUVNKIo)**		
+- **[수많은 크리스찬들이 속고 있는 믿음이라 착각하는 미신들](https://youtu.be/Q8cguMSxC4Q)**		
 
-이렇게 주기도문을 기도하세요 기적이 일어납니다 하나님이 알려주신 완벽한 기도의 가르침 
-- **[]()**
-https://youtu.be/wopvK5ygiCo		
+- **[천국가는 자는 적다 그러나 대부흥이 온다](https://youtu.be/tz2vKcP-KdY)**		
 
-음주운전 차량에 치여 17분간 죽었던 목사님이 본 충격적 진실! 
-- **[]()**
-https://youtu.be/0tzzITmPfWc		
+- **사랑은 모든 것을 이긴다[](https://youtu.be/O5kaIpTXiWc)**		
+	
+- **[당장 '이 말을' 하세요ㅣ99% 기독교인이 모르는 성령님이 즉시 역사하시는 한마디](https://youtu.be/vV5VoW4n25I)**		
 
-교회 안 나가면 죄일까 예수님이 세우신 ‘교회’의 진짜 의미
-- **[]()**
-https://youtu.be/6Nrg-UQAD04		
-
-시험을 이기는 하나님의 3가지말씀. 시험 당할 때, 이 시험은 하나님께서 허락하신 것입니다.
-- **[]()**
-https://youtu.be/VNonYp8_-J0		
-
-병자를 위한 기도문을 예수님께서 5가지 원칙을 알려주셨습니다.
-- **[]()**
-https://youtu.be/TsSP_nuR2RI		
-
-약으로 낫지 않는 상처, 말씀으로 회복 됩니다
-- **[]()**
-https://youtu.be/YZj-oUVNKIo		
-
-수많은 크리스찬들이 속고 있는 믿음이라 착각하는 미신들
-- **[]()**
-https://youtu.be/Q8cguMSxC4Q		
-
-천국가는 자는 적다 그러나 대부흥이 온다
-- **[]()**
-https://youtu.be/tz2vKcP-KdY		
-
-사랑은 모든 것을 이긴다
-- **[]()**
-https://youtu.be/O5kaIpTXiWc		
-
-당장 '이 말을' 하세요ㅣ99% 기독교인이 모르는 성령님이 즉시 역사하시는 한마디	
-- **[]()**
-https://youtu.be/vV5VoW4n25I		
-
-십자가 위의 마지막 일곱 마디ㅣ예수님이 남기신 영원한 사랑의 메시지
-- **[]()**
-https://youtu.be/V0sP_6v8c-4		
+- **[십자가 위의 마지막 일곱 마디ㅣ예수님이 남기신 영원한 사랑의 메시지](https://youtu.be/V0sP_6v8c-4)**		
 
 이렇게 성경 읽으면 천국 못 갑니다
 - **[]()**
