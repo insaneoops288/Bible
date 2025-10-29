@@ -8,9 +8,9 @@
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[표준새번역 성경](https://www.youtube.com/watch?v=lIp1zDatOfw&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1)**
+- **[하나님 말씀(표준새번역 성경)](https://www.youtube.com/watch?v=lIp1zDatOfw&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1)**
 
-- **[우리말 성경](https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1)**
+- **[하나님 말씀(우리말 성경)](https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1)**
  
 - 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
