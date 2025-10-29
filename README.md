@@ -76,7 +76,7 @@
 
 - **[천국가는 자는 적다 그러나 대부흥이 온다](https://youtu.be/tz2vKcP-KdY)**		
 
-- **사랑은 모든 것을 이긴다[](https://youtu.be/O5kaIpTXiWc)**		
+- **[사랑은 모든 것을 이긴다](https://youtu.be/O5kaIpTXiWc)**		
 	
 - **[당장 '이 말을' 하세요ㅣ99% 기독교인이 모르는 성령님이 즉시 역사하시는 한마디](https://youtu.be/vV5VoW4n25I)**		
 
@@ -110,29 +110,17 @@
 	
 - **[성령 충만한 사람에게서 공통으로 보이는 10가지 특징](https://youtu.be/HrdrYM8u2dE)**		
 
-네가 드린 헌금은 모른다는 하나님 - 십일조를 드리던 권사의 헌금이 외면당한 이유
-- **[]()**
-https://youtu.be/OfXpUSxhsNE		
+- **[네가 드린 헌금은 모른다는 하나님 - 십일조를 드리던 권사의 헌금이 외면당한 이유](https://youtu.be/OfXpUSxhsNE)**		
 
-교회가 절대 말하지 않는 십일조의 숨겨진 진실 세 가지
-- **[]()**
-https://youtu.be/f9R3jdMErBw		
+- **[교회가 절대 말하지 않는 십일조의 숨겨진 진실 세 가지](https://youtu.be/f9R3jdMErBw)**		
 
-진짜 목사는 이런 사람입니다｜당신의 교회는 어떻습니까?
-- **[]()**
-https://youtu.be/eCVvC6-astA		
+- **[진짜 목사는 이런 사람입니다｜당신의 교회는 어떻습니까?](https://youtu.be/eCVvC6-astA)**		
 
-성령님이 가장 기뻐하시는 고백 10가지
-- **[]()**
-https://youtu.be/lJ-aDa3LLr0		
+- **[성령님이 가장 기뻐하시는 고백 10가지](https://youtu.be/lJ-aDa3LLr0)**		
 
-좋은 목사, 위험한 목사 구별법	
-- **[]()**
-https://youtu.be/sSdA0M03cXs		
+- **[좋은 목사, 위험한 목사 구별법](https://youtu.be/sSdA0M03cXs)**		
 
-성경은 우리에게 행복하라고 하지 않습니다. 복음이 진짜 우리에게 주는 것 
-- **[]()**
-https://youtu.be/f7cxArDIoyU		
+- **[성경은 우리에게 행복하라고 하지 않습니다. 복음이 진짜 우리에게 주는 것 ](https://youtu.be/f7cxArDIoyU)**		
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
