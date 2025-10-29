@@ -57,7 +57,7 @@
 
 - **[하나님도 거절하시는 기도의 5가지 유형](https://youtu.be/Yu-lp5lTf3E)**		
 
-- **[나를 힘들게 하는 사람, 하나님은 그 사람을 통해 나를 변화 시키십니다](https://youtu.be/MspsV9tUDak)**		
+- **[나를 힘들게 하는 사람, 하나님은 사람을 통해 나를 변화 시키십니다](https://youtu.be/MspsV9tUDak)**		
 
 - **[주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다](https://youtu.be/4jaeZ28YgTw)**		
  
@@ -92,7 +92,7 @@
 
 - **[회개할 때 반드시 붙들어야 할 '5가지 말씀](https://youtu.be/afT2K0XY6ps)**		
 
-- **[하나님이 기뻐하시는 예배자의 5가지 특징](https://youtu.be/OnrDPOrv91)**E		
+- **[하나님이 기뻐하시는 예배자의 5가지 특징](https://youtu.be/OnrDPOrv91)**	
 
 - **[믿음으로 기도하면 반드시 회복되는 6가지](https://youtu.be/cZb0Chsb_AI)**		
 
@@ -121,6 +121,8 @@
 - **[좋은 목사, 위험한 목사 구별법](https://youtu.be/sSdA0M03cXs)**		
 
 - **[성경은 우리에게 행복하라고 하지 않습니다. 복음이 진짜 우리에게 주는 것 ](https://youtu.be/f7cxArDIoyU)**		
+
+
 
 - 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
 
@@ -181,8 +183,7 @@
 
 - 깃허브에서 읽어주는 성경을 설치하는 방법입니다. 종전에 이미 읽어주는 성경이 설치되어 있다면 압축파일을 다운으로 받아서 종전에 폴더에 덮어쓰기 하시면 됩니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
+- **[깃허브에서 읽어주는 성경을 설치하는 방법입니다.](https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s)**
 
 - 성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 6가지를 선택해서 읽어줄 수 있습니다.
 
@@ -190,8 +191,7 @@ https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=SwbN91-IGbg
+- **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다.](https://www.youtube.com/watch?v=SwbN91-IGbg)**
 
 - 선택된 성경의 각 장들을 선택할 수 있습니다.
 
@@ -199,12 +199,12 @@ https://www.youtube.com/watch?v=SwbN91-IGbg
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=lrVuRImiRyc
+- **[선택된 성경의 각 장들을 선택할 수 있습니다.](https://www.youtube.com/watch?v=lrVuRImiRyc)**
 
-- 각 장들에 포함된 모든 절을 순서적으로 읽어줍니다. < 아래 동영상을 클릭해서 재생시켜 보세요. >
+- 각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.
+< 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-https://www.youtube.com/watch?v=LzDALibL9fI
+- **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://www.youtube.com/watch?v=LzDALibL9fI)**
 
 - 자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.
 
@@ -212,8 +212,7 @@ https://www.youtube.com/watch?v=LzDALibL9fI
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=OTZHtN0YqTI
+- **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다.](https://www.youtube.com/watch?v=OTZHtN0YqTI)**
 
 - 선택한 성경에서 특정 단어로 검색이 가능합니다.
 
@@ -221,8 +220,7 @@ https://www.youtube.com/watch?v=OTZHtN0YqTI
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=rwGmyHYcX10
+- **[선택한 성경에서 특정 단어로 검색이 가능합니다.](https://www.youtube.com/watch?v=rwGmyHYcX10)**
 
 - 업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.
   
@@ -230,32 +228,28 @@ https://www.youtube.com/watch?v=rwGmyHYcX10
 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=RtIdi5DzV7k
+- **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.](https://www.youtube.com/watch?v=RtIdi5DzV7k)**
 
 - 영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다.
   
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible010.png" width="150"> 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=-jR0ljmGzf8
+- **[영어 단어퀴즈가 포함되어 있습니다. 퀴즈를 선택해서 하나씩 풀어줍니다.](https://www.youtube.com/watch?v=-jR0ljmGzf8)**
 
 - 자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다. 
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible011.png" width="150"> 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://www.youtube.com/watch?v=rqvRRzMq7sU
+- **[자동으로 확인해 볼만한 단어들을 뜻과 함께 보여줍니다.](https://www.youtube.com/watch?v=rqvRRzMq7sU)**
 
 - Youtube에서 성경관련 좋은 내용과 간증들을 모았습니다. 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible012.png" width="150">
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible013.png" > 
 < 아래 동영상을 클릭해서 재생시켜 보세요. >
 
-- **[]()**
-https://youtu.be/F2uE7Lpsg8M
+- **[Youtube에서 성경관련 좋은 내용과 간증들을 모았습니다. ](https://youtu.be/F2uE7Lpsg8M)**
 
 - 아버지의 말씀인 성경을, 아버지께서 원래 의도하셨던 뜻대로 진실하게 이해할 수 있는 지혜를 저에게 주십시요. 아버지의 말씀을 많은 사람들에게 전해 주어서, 아버지의 은혜로 예수님을 구세주로 진실되게 믿어서 그들이 구원과 영원한 생명을 받고 예수님께서 다시 오셨을 때 아버지의 나라로 갈 수 있도록 제가 돕게 해 주십시요. 하지만 아버지께서 저를 도구로써 다른 뜻을 가지고 계시면 제뜻대로 하지 마시고 아버지 뜻대로 해 주십시요  저는 순종합니다. 이 모든 말씀 살아계신 아버지의 아들이시며 구세주이신 예수님의 이름으로 기도드립니다. 아멘. !!
 
