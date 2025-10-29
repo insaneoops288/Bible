@@ -179,6 +179,8 @@
 
 - **[깃허브에서 읽어주는 성경을 설치하는 방법입니다. 종전에 이미 읽어주는 성경이 설치되어 있다면 압축파일을 다운으로 받아서 종전에 폴더에 덮어쓰기 하시면 됩니다.](https://www.youtube.com/watch?v=bBHrU9cRFuw&t=3s)**
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible015.png" > 
+
 - **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 6가지를 선택해서 읽어줄 수 있습니다.](https://www.youtube.com/watch?v=SwbN91-IGbg)**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="300"> 
@@ -189,6 +191,8 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 
 - **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://www.youtube.com/watch?v=LzDALibL9fI)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible014.png" width="300"> 
 
 - **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.](https://www.youtube.com/watch?v=OTZHtN0YqTI)**
 
