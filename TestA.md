@@ -1,8 +1,8 @@
-# 읽어주는 성경 v1.034 입니다. 
+# 읽어주는 하나님의 말씀 v1.034 입니다. 
 
-- **[읽어주는 성경 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
+- **[읽어주는 하나님의 말씀 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
 
-- 한글성경 4종류, 영어성경 6종류를 챕터별로 읽어줄 수 있는 읽어주는 성경입니다. 
+- 한글성경 4가지, 영어성경 6가지를 챕터별로 읽어줄 수 있는 읽어주는 하나님의 말씀입니다. 
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
 
