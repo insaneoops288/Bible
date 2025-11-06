@@ -1,0 +1,717 @@
+
+하나님의 아들이신 예수 그리스도의 복음은 이렇게 시작되었습니다. -마가복음(막) 1장 1절-
+The beginning of the gospel about Jesus Christ, the Son of God. -Mark(Mark) 1:1-
+
+이사야 예언자의 글에 이렇게 쓰여 있습니다.“보아라.내가 네 앞에 사자를 보낸다.그가 네 길을 준비할 것이다.” -마가복음(막) 1장 2절-
+It is written in Isaiah the prophet, "I will send my messenger ahead of you, who will prepare your way", -Mark(Mark) 1:2-
+
+“광야에서 외치는 자의 목소리가 들린다. ‘주님의 길을 준비하여라. -마가복음(막) 1장 3절-
+"a voice of one calling in the desert, 'Prepare the way for the Lord, make straight paths for him.'" -Mark(Mark) 1:3-
+
+세례자 요한이 광야에 나타나서 죄 용서를 위한 회개의 세례를 선포하였습니다. -마가복음(막) 1장 4절-
+And so John came, baptizing in the desert region and preaching a baptism of repentance for the forgiveness of sins. -Mark(Mark) 1:4-
+
+그래서 온 유대 지방 사람들과 예루살렘 사람들이 요한에게 나아갔습니다. 그들은 자신들이 지은 죄를 고백하고, 요단 강에서 요한에게 세례를 받았습니다. -마가복음(막) 1장 5절-
+The whole Judean countryside and all the people of Jerusalem went out to him. Confessing their sins, they were baptized by him in the Jordan River. -Mark(Mark) 1:5-
+
+요한은 낙타털로 만든 옷을 입고, 허리에는 가죽띠를 띠고, 메뚜기와 들꿀을 먹었습니다. -마가복음(막) 1장 6절-
+John wore clothing made of camel's hair, with a leather belt around his waist, and he ate locusts and wild honey. -Mark(Mark) 1:6-
+
+요한은 사람들에게 이렇게 선포하였습니다. “나보다 더 강하신 분이 내 뒤에 오신다. 나는 그분 앞에 꿇어앉아 그분의 신발 끈을 풀기에도 부족하다. -마가복음(막) 1장 7절-
+And this was his message, "After me will come one more powerful than I, the thongs of whose sandals I am not worthy to stoop down and untie. -Mark(Mark) 1:7-
+
+나는 너희에게 물로 세례를 주지만 그분은 너희에게 성령으로 세례를 베푸실 것이다.” -마가복음(막) 1장 8절-
+I baptize you with water, but he will baptize you with the Holy Spirit." -Mark(Mark) 1:8-
+
+그 때, 예수님께서 갈릴리에 있는 나사렛 마을에서 요단 강으로 오셔서, 요한에게 세례를 받으셨습니다. -마가복음(막) 1장 9절-
+At that time Jesus came from Nazareth in Galilee and was baptized by John in the Jordan. -Mark(Mark) 1:9-
+
+예수님께서 물에서 나오실 때, 하늘이 열리는 것을 보셨습니다. 그리고 성령님께서 비둘기처럼 자신에게 내려오는 것을 보셨습니다. -마가복음(막) 1장 10절-
+As Jesus was coming up out of the water, he saw heaven being torn open and the Spirit descending on him like a dove. -Mark(Mark) 1:10-
+
+하늘에서 “너는 내 사랑하는 아들이다. 내가 너로 말미암아 매우 기쁘다”라고 말하는 소리가 들렸습니다. -마가복음(막) 1장 11절-
+And a voice came from heaven, "You are my Son, whom I love, with you I am well pleased." -Mark(Mark) 1:11-
+
+예수님께서는 “때가 되었다. 하나님 나라가 가까이 왔다. 회개하고, 복음을 믿어라!” 하고 말씀하셨습니다. -마가복음(막) 1장 15절-
+"The time has come," he said. "The kingdom of God is near. Repent and believe the good news!" -Mark(Mark) 1:15-
+
+마침, 거기에 율법학자 몇 명이 앉아 있었는데, 마음속으로 생각했습니다. -마가복음(막) 2장 6절-
+Now some teachers of the law were sitting there, thinking to themselves, -Mark(Mark) 2:6-
+
+‘어떻게 이 사람이 저런 말을 하는가? 하나님을 모독하고 있구나. 하나님 외에 누가 죄를 용서할 수 있다는 말인가?’ -마가복음(막) 2장 7절-
+"Why does this fellow talk like that? He's blaspheming! Who can forgive sins but God alone?" -Mark(Mark) 2:7-
+
+예수님께서는 이 율법학자들이 속으로 생각하는 것을 곧 영으로 아셨습니다. 그래서 그들에게 말씀하셨습니다. “어째서 너희가 마음속으로 그런 생각을 하고 있느냐? -마가복음(막) 2장 8절-
+Immediately Jesus knew in his spirit that this was what they were thinking in their hearts, and he said to them, "Why are you thinking these things? -Mark(Mark) 2:8-
+
+이 중풍병 환자에게 ‘네 죄가 용서되었다’라고 말하는 것과 ‘일어나서 침상을 가지고 걸어라’ 하고 말하는 것 중에 어느 것이 더 쉽겠느냐? -마가복음(막) 2장 9절-
+Which is easier, to say to the paralytic, 'Your sins are forgiven,' or to say, 'Get up, take your mat and walk'? -Mark(Mark) 2:9-
+
+그러나 인자가 세상에서 죄를 용서할 수 있는 권세가 있다는 것을 너희에게 보여 주려고 그랬다.” 예수님께서 중풍병 환자에게 말씀하셨습니다. -마가복음(막) 2장 10절-
+But that you may know that the Son of Man has authority on earth to forgive sins. . . ." He said to the paralytic, -Mark(Mark) 2:10-
+
+“내가 네게 말한다. 일어나 침상을 가지고 집으로 가거라.” -마가복음(막) 2장 11절-
+"I tell you, get up, take your mat and go home." -Mark(Mark) 2:11-
+
+중풍병자는 일어나 침상을 들고 모든 사람이 보는 앞에서 걸어나갔습니다. 사람들이 놀라서 하나님께 찬송을 드렸으며 “우리는 이와 같은 일을 본 적이 없다!”라고 말하였습니다. -마가복음(막) 2장 12절-
+He got up, took his mat and walked out in full view of them all. This amazed everyone and they praised God, saying, "We have never seen anything like this!" -Mark(Mark) 2:12-
+
+바리새파 율법학자들이 예수님께서 세리들과 죄인들과 함께 식사하시는 것을 보고, 제자들에게 물었습니다. “어째서 너희 선생님은 세리와 죄인들과 먹고 마시느냐?” -마가복음(막) 2장 16절-
+When the teachers of the law who were Pharisees saw him eating with the "sinners" and tax collectors, they asked his disciples, "Why does he eat with tax collectors and 'sinners'?" -Mark(Mark) 2:16-
+
+예수님께서 이 말을 들으시고, 그들에게 말씀하셨습니다. “건강한 사람에게는 의사가 필요 없고, 병든 사람에게 의사가 필요한 것이다. 나는 의로운 사람을 부르러 온 것이 아니고, 죄인들을 부르러 왔다.” -마가복음(막) 2장 17절-
+On hearing this, Jesus said to them, "It is not the healthy who need a doctor, but the sick. I have not come to call the righteous, but sinners." -Mark(Mark) 2:17-
+
+요한의 제자들과 바리새파 사람들은 금식을 하였습니다. 사람들이 와서 말했습니다. “요한의 제자들과 바리새파 사람의 제자들은 금식을 하는데, 어째서 선생님의 제자들은 금식을 하지 않습니까?” -마가복음(막) 2장 18절-
+Now John's disciples and the Pharisees were fasting. Some people came and asked Jesus, "How is it that John's disciples and the disciples of the Pharisees are fasting, but yours are not?" -Mark(Mark) 2:18-
+
+예수님께서 대답하셨습니다. “신랑의 친구들이 신랑과 함께 있을 때, 금식을 하지 않는다. 그렇지 않느냐? 신랑이 자기들과 함께 있는 한, 그들은 금식하지 않는다. -마가복음(막) 2장 19절-
+Jesus answered, "How can the guests of the bridegroom fast while he is with them? They cannot, so long as they have him with them. -Mark(Mark) 2:19-
+
+그러나 신랑을 빼앗길 날이 올 것이고, 그 날에 금식을 하게 될 것이다. -마가복음(막) 2장 20절-
+But the time will come when the bridegroom will be taken from them, and on that day they will fast. -Mark(Mark) 2:20-
+
+그 누구도 낡은 옷에 새 천조각을 대고, 깁지 않는다. 만일 그렇게 하면 새로 댄 조각이 낡은 옷을 당겨 더욱 못 쓰게 될 것이다. -마가복음(막) 2장 21절-
+"No one sews a patch of unshrunk cloth on an old garment. If he does, the new piece will pull away from the old, making the tear worse. -Mark(Mark) 2:21-
+
+또한 그 누구도 낡은 술 부대에 새 술을 보관하지 않는다. 만일 그렇게 하면 술이 그 부대를 터뜨려, 술과 함께 술 부대가 다 못 쓰게 될 것이다. 새 술은 새 부대에 넣어야 한다.” -마가복음(막) 2장 22절-
+And no one pours new wine into old wineskins. If he does, the wine will burst the skins, and both the wine and the wineskins will be ruined. No, he pours new wine into new wineskins." -Mark(Mark) 2:22-
+
+그리고 그들에게 물으셨습니다. “안식일에 좋은 일을 하는 것이 옳으냐? 나쁜 일을 하는 것이 옳은 것이냐? 사람의 생명을 살리는 것이 옳으냐? 죽이는 것이 옳으냐?” 그러자 사람들이 아무런 대답도 하지 못했습니다. -마가복음(막) 3장 4절-
+Then Jesus asked them, "Which is lawful on the Sabbath, to do good or to do evil, to save life or to kill?" But they remained silent. -Mark(Mark) 3:4-
+
+내가 너희에게 진정으로 말하는데, 사람들이 무슨 죄를 짓든지 어떤 비방을 하든지 그것은 모두 용서받을 수 있다. -마가복음(막) 3장 28절-
+I tell you the truth, all the sins and blasphemies of men will be forgiven them. -Mark(Mark) 3:28-
+
+그러나 성령님을 모독하는 죄는 결코 용서될 수 없다. 그것은 영원한 죄이다.” -마가복음(막) 3장 29절-
+But whoever blasphemes against the Holy Spirit will never be forgiven, he is guilty of an eternal sin." -Mark(Mark) 3:29-
+
+이 말씀을 하신 것은, 율법학자들이 예수님께 더러운 귀신이 들렸다고 말했기 때문입니다. -마가복음(막) 3장 30절-
+He said this because they were saying, "He has an evil spirit." -Mark(Mark) 3:30-
+
+예수님의 어머니와 형제들이 도착했습니다. 그들은 밖에 서서 사람을 보내 예수님을 불렀습니다. -마가복음(막) 3장 31절-
+Then Jesus' mother and brothers arrived. Standing outside, they sent someone in to call him. -Mark(Mark) 3:31-
+
+사람들이 예수님 주위에 앉아 있다가, 예수님께 말했습니다. “보십시오. 선생님의 어머니와 형제들이 밖에서 선생님을 찾고 있습니다.” -마가복음(막) 3장 32절-
+A crowd was sitting around him, and they told him, "Your mother and brothers are outside looking for you." -Mark(Mark) 3:32-
+
+예수님께서 대답하셨습니다. “누가 나의 어머니이고, 누가 나의 형제냐?” -마가복음(막) 3장 33절-
+"Who are my mother and my brothers?" he asked. -Mark(Mark) 3:33-
+
+주위에 앉아 있는 사람들을 둘러보시며 말씀하셨습니다. “보아라. 내 어머니와 형제들이다! -마가복음(막) 3장 34절-
+Then he looked at those seated in a circle around him and said, "Here are my mother and my brothers! -Mark(Mark) 3:34-
+
+누구든지 하나님의 뜻대로 행하는 사람이 나의 형제와 자매이며 또한 어머니이다.” -마가복음(막) 3장 35절-
+Whoever does God's will is my brother and sister and mother." -Mark(Mark) 3:35-
+
+“들어라! 한 농부가 씨를 뿌리러 나갔다. -마가복음(막) 4장 3절-
+"Listen! A farmer went out to sow his seed. -Mark(Mark) 4:3-
+
+농부가 씨를 뿌리는데, 어떤 씨는 길가에 떨어졌다. 그러자 새들이 와서 씨를 모두 먹어 버렸다. -마가복음(막) 4장 4절-
+As he was scattering the seed, some fell along the path, and the birds came and ate it up. -Mark(Mark) 4:4-
+
+어떤 씨는 흙이 거의 없는 돌 무더기에 떨어져 곧 자랐으나, 땅이 깊지 않았다. -마가복음(막) 4장 5절-
+Some fell on rocky places, where it did not have much soil. It sprang up quickly, because the soil was shallow. -Mark(Mark) 4:5-
+
+해가 돋자 싹이 말랐고, 뿌리가 없어서 시들어 버렸다. -마가복음(막) 4장 6절-
+But when the sun came up, the plants were scorched, and they withered because they had no root. -Mark(Mark) 4:6-
+
+또 다른 씨는 가시덤불 속에 떨어졌다. 가시가 자라서 싹이 자라지 못하게 했기 때문에 싹은 열매를 맺지 못했다. -마가복음(막) 4장 7절-
+Other seed fell among thorns, which grew up and choked the plants, so that they did not bear grain. -Mark(Mark) 4:7-
+
+또 다른 씨는 좋은 땅에 떨어졌다. 싹이 나고 자라서 열매를 맺어 어떤 것은 삼십 배, 어떤 것은 육십 배, 어떤 것은 백 배의 열매를 맺었다.” -마가복음(막) 4장 8절-
+Still other seed fell on good soil. It came up, grew and produced a crop, multiplying thirty, sixty, or even a hundred times." -Mark(Mark) 4:8-
+
+농부는 말씀을 뿌린다. -마가복음(막) 4장 14절-
+The farmer sows the word. -Mark(Mark) 4:14-
+
+길가에 말씀이 떨어졌다는 것은 하나님의 말씀을 들었으나 곧 사탄이 와서 그 뿌려진 말씀을 빼앗는 사람을 말한다. -마가복음(막) 4장 15절-
+Some people are like seed along the path, where the word is sown. As soon as they hear it, Satan comes and takes away the word that was sown in them. -Mark(Mark) 4:15-
+
+돌 무더기에 씨가 떨어졌다는 것은 말씀을 들을 때, 기쁨으로 즉시 받아들이지만 -마가복음(막) 4장 16절-
+Others, like seed sown on rocky places, hear the word and at once receive it with joy. -Mark(Mark) 4:16-
+
+속에 뿌리가 없어 오래가지 못하고 말씀 때문에 환난이나 박해가 일어나면 곧 넘어지는 사람이다. -마가복음(막) 4장 17절-
+But since they have no root, they last only a short time. When trouble or persecution comes because of the word, they quickly fall away. -Mark(Mark) 4:17-
+
+가시덤불에 씨가 떨어졌다는 것은 말씀을 듣지만, -마가복음(막) 4장 18절-
+Still others, like seed sown among thorns, hear the word, -Mark(Mark) 4:18-
+
+세상의 염려와 재물에 대한 유혹과 그 밖의 여러 가지 욕심이 말씀을 가로막아서 열매를 맺지 못하는 사람이다. -마가복음(막) 4장 19절-
+but the worries of this life, the deceitfulness of wealth and the desires for other things come in and choke the word, making it unfruitful. -Mark(Mark) 4:19-
+
+좋은 땅에 씨가 떨어졌다는 것은 말씀을 듣고 받아들여 삼십 배, 육십 배, 백 배의 열매를 맺는 사람이다.” -마가복음(막) 4장 20절-
+Others, like seed sown on good soil, hear the word, accept it, and produce a crop, thirty, sixty or even a hundred times what was sown." -Mark(Mark) 4:20-
+
+예수님께서 그들에게 말씀하셨습니다. “등불을 침대 아래나 됫박 밑에 두겠느냐? 등잔대 위에 두지 않겠느냐? -마가복음(막) 4장 21절-
+He said to them, "Do you bring in a lamp to put it under a bowl or a bed? Instead, don't you put it on its stand? -Mark(Mark) 4:21-
+
+숨긴 것은 나타나고, 비밀은 드러나게 마련이다. -마가복음(막) 4장 22절-
+For whatever is hidden is meant to be disclosed, and whatever is concealed is meant to be brought out into the open. -Mark(Mark) 4:22-
+
+예수님께서 그들에게 말씀하셨습니다. “너희가 듣는 것을 마음에 새겨라. 너희가 다른 사람에게 주는 만큼 너희가 받을 것이며, 그 외에도 더 주실 것이다. -마가복음(막) 4장 24절-
+"Consider carefully what you hear," he continued. "With the measure you use, it will be measured to you, and even more. -Mark(Mark) 4:24-
+
+가진 사람은 더 받을 것이고, 가지지 못한 사람은 가진 것마저도 빼앗길 것이다.” -마가복음(막) 4장 25절-
+Whoever has will be given more, whoever does not have, even what he has will be taken from him." -Mark(Mark) 4:25-
+
+예수님께서 말씀하셨습니다. “하나님 나라는 밭에 씨를 뿌리는 농부와 같다. -마가복음(막) 4장 26절-
+He also said, "This is what the kingdom of God is like. A man scatters seed on the ground. -Mark(Mark) 4:26-
+
+밤낮으로 자고 일어나는 동안, 씨가 싹이 나고 자란다. 사람은 그것이 어떻게 자라는지를 알지 못한다. -마가복음(막) 4장 27절-
+Night and day, whether he sleeps or gets up, the seed sprouts and grows, though he does not know how. -Mark(Mark) 4:27-
+
+땅은 저절로 열매를 맺게 한다. 먼저 싹이 나고, 다음에는 이삭이 나오고, 마침내 낟알이 여문다. -마가복음(막) 4장 28절-
+All by itself the soil produces grain, first the stalk, then the head, then the full kernel in the head. -Mark(Mark) 4:28-
+
+곡식이 익으면, 농부가 와서 낫으로 그것을 거두어들인다. 그것은 추수 때가 되었기 때문이다.” -마가복음(막) 4장 29절-
+As soon as the grain is ripe, he puts the sickle to it, because the harvest has come." -Mark(Mark) 4:29-
+
+하나님 나라는 겨자씨와 같다. 겨자씨를 밭에 심을 때는 밭에 심는 씨앗 중에서 가장 작다. -마가복음(막) 4장 31절-
+It is like a mustard seed, which is the smallest seed you plant in the ground. -Mark(Mark) 4:31-
+
+그러나 심긴 후에는 그 어떤 밭 작물보다 더 크게 자란다. 커다란 가지를 내어, 하늘의 새들이 그 그늘에 둥지를 틀 정도가 된다.” -마가복음(막) 4장 32절-
+Yet when planted, it grows and becomes the largest of all garden plants, with such big branches that the birds of the air can perch in its shade." -Mark(Mark) 4:32-
+
+예수님께서 계속 말씀하고 계실 때, 회당장의 집에서 사람이 와 회당장에게 말했습니다. “따님이 죽었습니다. 왜 예수님을 계속 번거롭게 하십니까?” -마가복음(막) 5장 35절-
+While Jesus was still speaking, some men came from the house of Jairus, the synagogue ruler. "Your daughter is dead," they said. "Why bother the teacher any more?" -Mark(Mark) 5:35-
+
+그러나 예수님께서는 이 말을 무시하시고, 회당장에게 “두려워 말고 믿기만 하여라” 하고 말씀하셨습니다. -마가복음(막) 5장 36절-
+Ignoring what they said, Jesus told the synagogue ruler, "Don't be afraid, just believe." -Mark(Mark) 5:36-
+
+예수님께서는 베드로와 야고보, 그리고 야고보의 동생인 요한 외에는 아무도 따라오지 못하도록 하셨습니다. -마가복음(막) 5장 37절-
+He did not let anyone follow him except Peter, James and John the brother of James. -Mark(Mark) 5:37-
+
+그들이 회당장의 집에 도착해 보니 몹시 소란스러웠습니다. 많은 사람들이 크게 소리를 내며 울고 있었습니다. -마가복음(막) 5장 38절-
+When they came to the home of the synagogue ruler, Jesus saw a commotion, with people crying and wailing loudly. -Mark(Mark) 5:38-
+
+예수님께서 들어가셔서 사람들에게 “어째서 소란을 피우며 울고 있느냐? 이 아이는 죽은 것이 아니라 자는 것이다”라고 말씀하셨습니다. -마가복음(막) 5장 39절-
+He went in and said to them, "Why all this commotion and wailing? The child is not dead but asleep." -Mark(Mark) 5:39-
+
+사람들은 예수님을 비웃었습니다. 예수님께서는 사람들을 모두 내보내시고, 아이의 부모와 제자들과 함께 아이가 있는 방으로 들어가셨습니다. -마가복음(막) 5장 40절-
+But they laughed at him. After he put them all out, he took the child's father and mother and the disciples who were with him, and went in where the child was. -Mark(Mark) 5:40-
+
+그리고 아이의 손을 붙잡고 “달리다굼!”이라고 말씀하셨는데, 이는 번역하면 “어린 소녀야, 일어나라!”는 뜻입니다. -마가복음(막) 5장 41절-
+He took her by the hand and said to her, "Talitha koum!" (which means, "Little girl, I say to you, get up!"). -Mark(Mark) 5:41-
+
+그러자 열두 살 된 소녀는 즉시 일어나 걷기 시작했습니다. 이것을 보고 사람들은 놀랐습니다. -마가복음(막) 5장 42절-
+Immediately the girl stood up and walked around (she was twelve years old). At this they were completely astonished. -Mark(Mark) 5:42-
+
+이들은 예수님의 제자들 가운데 몇 명이 더러운 손으로, 즉 씻지도 않은 손으로 빵을 먹는 것을 보았습니다. -마가복음(막) 7장 2절-
+saw some of his disciples eating food with hands that were "unclean," that is, unwashed. -Mark(Mark) 7:2-
+
+바리새파 사람들과 모든 유대인들은 손을 씻기 전에는 결코 음식을 먹지 않습니다. 이것은 장로들의 전통을 지키는 것입니다. -마가복음(막) 7장 3절-
+(The Pharisees and all the Jews do not eat unless they give their hands a ceremonial washing, holding to the tradition of the elders. -Mark(Mark) 7:3-
+
+시장에서 돌아오면 자신들의 몸을 깨끗하게 씻지 않고서는 음식을 먹지 않았습니다. 이 외에도 여러 가지 지켜야 할 일이 많았는데 컵이나 주전자, 냄비 그릇 그리고 침대를 씻는 것이었습니다. -마가복음(막) 7장 4절-
+When they come from the marketplace they do not eat unless they wash. And they observe many other traditions, such as the washing of cups, pitchers and kettles.) -Mark(Mark) 7:4-
+
+바리새파 사람들과 율법학자들이 예수님께 말했습니다. “어째서 선생님의 제자들은 장로들의 전통을 지키지 않고, 더러운 손으로 음식을 먹습니까?” -마가복음(막) 7장 5절-
+So the Pharisees and teachers of the law asked Jesus, "Why don't your disciples live according to the tradition of the elders instead of eating their food with 'unclean' hands?" -Mark(Mark) 7:5-
+
+예수님께서 대답하셨습니다. “이사야가 너희와 같은 위선자들에 대하여 쓴 것이 옳구나.‘이 백성들이 입술로는 나를 공경하나, 마음은 내게서 멀구나. -마가복음(막) 7장 6절-
+He replied, "Isaiah was right when he prophesied about you hypocrites, as it is written, "'These people honor me with their lips, but their hearts are far from me. -Mark(Mark) 7:6-
+
+헛되이 내게 예배를 드리고, 사람의 훈계를 교리인 양 가르친다.’ -마가복음(막) 7장 7절-
+They worship me in vain, their teachings are but rules taught by men.' -Mark(Mark) 7:7-
+
+너희는 하나님의 계명은 무시하고 사람의 전통만 지키는구나.” -마가복음(막) 7장 8절-
+You have let go of the commands of God and are holding on to the traditions of men." -Mark(Mark) 7:8-
+
+예수님께서 그들에게 말씀하셨습니다. “너희는 너희의 전통을 지키려고 하나님의 명령을 그럴듯하게 무시하는구나! -마가복음(막) 7장 9절-
+And he said to them, "You have a fine way of setting aside the commands of God in order to observe your own traditions! -Mark(Mark) 7:9-
+
+모세는, ‘네 아버지와 어머니를 공경하여라. 아버지나 어머니를 욕하는 사람은 반드시 죽으리라’고 하였다. -마가복음(막) 7장 10절-
+For Moses said, 'Honor your father and your mother,' and, 'Anyone who curses his father or mother must be put to death.' -Mark(Mark) 7:10-
+
+그러나 너희는, ‘아버지나 어머니에게 드리려던 것이 고르반, 즉 하나님께 드리는 예물이 되었다’고 하면 그만이라고 한다. -마가복음(막) 7장 11절-
+But you say that if a man says to his father or mother, 'Whatever help you might otherwise have received from me is Corban' (that is, a gift devoted to God), -Mark(Mark) 7:11-
+
+그래서 자기 아버지나 어머니에게 아무것도 드리지 못하게 한다. -마가복음(막) 7장 12절-
+then you no longer let him do anything for his father or mother. -Mark(Mark) 7:12-
+
+그러므로 너희는 너희들의 전통으로 하나님의 말씀을 깨뜨리고 있다. 너희는 이와 같은 일을 많이 하고 있다.” -마가복음(막) 7장 13절-
+Thus you nullify the word of God by your tradition that you have handed down. And you do many things like that." -Mark(Mark) 7:13-
+
+무엇이든지 사람 밖에서 몸 속으로 들어가 사람을 더럽히는 것은 아무것도 없다. 사람에게서 나오는 것이 사람을 더럽힌다.” -마가복음(막) 7장 15절-
+Nothing outside a man can make him 'unclean' by going into him. Rather, it is what comes out of a man that makes him 'unclean.'" -Mark(Mark) 7:15-
+
+오히려 사람 속에서 나오는 것이 사람을 ‘더럽게’ 하는 것이다.” -마가복음(막) 7장 16절-
+If anyone has ears to hear, let him hear. -Mark(Mark) 7:16-
+
+예수님께서 말씀하셨습니다. “너희는 아직도 깨닫지 못하겠느냐? 바깥에서 사람 속으로 들어가는 것이 사람을 더럽히지 못한다는 것을 깨닫지 못하느냐? -마가복음(막) 7장 18절-
+"Are you so dull?" he asked. "Don't you see that nothing that enters a man from the outside can make him 'unclean'? -Mark(Mark) 7:18-
+
+그것은 사람의 마음속에 들어가는 것이 아니라, 배로 들어가서 뒤로 나간다.” 그러므로 예수님께서는 모든 음식이 깨끗하다고 선언하셨습니다. -마가복음(막) 7장 19절-
+For it doesn't go into his heart but into his stomach, and then out of his body." (In saying this, Jesus declared all foods "clean.") -Mark(Mark) 7:19-
+
+예수님께서 말씀하셨습니다. “사람에게서 나오는 것, 바로 그것이 사람을 더럽히는 것이다. -마가복음(막) 7장 20절-
+He went on, "What comes out of a man is what makes him 'unclean.' -Mark(Mark) 7:20-
+
+속에서부터, 즉 사람의 마음으로부터 악한 생각, 음란, 도둑질, 살인, -마가복음(막) 7장 21절-
+For from within, out of men's hearts, come evil thoughts, sexual immorality, theft, murder, adultery, -Mark(Mark) 7:21-
+
+간음, 탐욕, 악의가 나오며, 속임수, 방탕, 질투, 욕지거리, 교만, 어리석음이 나온다. -마가복음(막) 7장 22절-
+greed, malice, deceit, lewdness, envy, slander, arrogance and folly. -Mark(Mark) 7:22-
+
+이 모든 악한 것들은 사람의 속에서 나와 사람을 더럽힌다.” -마가복음(막) 7장 23절-
+All these evils come from inside and make a man 'unclean.'" -Mark(Mark) 7:23-
+
+예수님께서 제자들에게 경고를 하셨습니다. “바리새파 사람들의 누룩과 헤롯의 누룩을 조심하여라.” -마가복음(막) 8장 15절-
+"Be careful," Jesus warned them. "Watch out for the yeast of the Pharisees and that of Herod." -Mark(Mark) 8:15-
+
+제자들은 빵이 없어서 그런가 하고, 서로 수군거렸습니다. -마가복음(막) 8장 16절-
+They discussed this with one another and said, "It is because we have no bread." -Mark(Mark) 8:16-
+
+예수님께서 이것을 아시고 물으셨습니다. “어째서 너희가 빵이 없는 것에 대해서 수군거리느냐? 너희가 아직도 알지 못하고 깨닫지 못하느냐? 너희의 마음이 굳어졌느냐? -마가복음(막) 8장 17절-
+Aware of their discussion, Jesus asked them, "Why are you talking about having no bread? Do you still not see or understand? Are your hearts hardened? -Mark(Mark) 8:17-
+
+너희는 눈이 있어도 보지 못하고, 귀가 있어도 듣지 못하느냐? 기억하지 못하느냐? -마가복음(막) 8장 18절-
+Do you have eyes but fail to see, and ears but fail to hear? And don't you remember? -Mark(Mark) 8:18-
+
+예수님께서, 인자가 많은 고통을 받고, 장로들과 대제사장과 율법학자들에게 배척을 당하며, 죽임을 당하고, 삼 일 뒤에 다시 살아날 것을 제자들에게 가르치셨습니다. -마가복음(막) 8장 31절-
+He then began to teach them that the Son of Man must suffer many things and be rejected by the elders, chief priests and teachers of the law, and that he must be killed and after three days rise again. -Mark(Mark) 8:31-
+
+예수님께서 제자들과 사람들을 불러 말씀하셨습니다. “누구든지 나를 따르려면, 자기를 부인하고, 자기 십자가를 지고 나를 따라오너라. -마가복음(막) 8장 34절-
+Then he called the crowd to him along with his disciples and said, "If anyone would come after me, he must deny himself and take up his cross and follow me. -Mark(Mark) 8:34-
+
+누구든지 자기 목숨을 구하고자 하면 잃을 것이다. 누구든지 나와 복음을 위하여 자기 목숨을 버리면 목숨을 구할 것이다. -마가복음(막) 8장 35절-
+For whoever wants to save his life will lose it, but whoever loses his life for me and for the gospel will save it. -Mark(Mark) 8:35-
+
+만일 온 세상을 얻고도 자기의 생명을 잃는다면, 무슨 유익이 있겠느냐? -마가복음(막) 8장 36절-
+What good is it for a man to gain the whole world, yet forfeit his soul? -Mark(Mark) 8:36-
+
+사람이 자기 영혼을 무엇과 바꾸겠느냐? -마가복음(막) 8장 37절-
+Or what can a man give in exchange for his soul? -Mark(Mark) 8:37-
+
+누구든지 이 음란하고, 죄가 많은 세대에서 나와 내 말을 부끄럽게 여기면 인자도 아버지의 영광으로 천사들과 함께 올 때, 그를 부끄럽게 여길 것이다.” -마가복음(막) 8장 38절-
+If anyone is ashamed of me and my words in this adulterous and sinful generation, the Son of Man will be ashamed of him when he comes in his Father's glory with the holy angels." -Mark(Mark) 8:38-
+
+구름이 그들을 덮었습니다. 그리고 그 구름 가운데서 목소리가 들렸습니다. “이 사람은 내가 사랑하는 아들이다. 그의 말을 들어라!” -마가복음(막) 9장 7절-
+Then a cloud appeared and enveloped them, and a voice came from the cloud, "This is my Son, whom I love. Listen to him!" -Mark(Mark) 9:7-
+
+귀신이 자주 아이를 죽이려고, 불 속이나 물 속에 내던지기도 하였습니다. 할 수만 있다면, 불쌍히 여기시고 도와 주십시오.” -마가복음(막) 9장 22절-
+"It has often thrown him into fire or water to kill him. But if you can do anything, take pity on us and help us." -Mark(Mark) 9:22-
+
+예수님께서 그에게 말씀하셨습니다. “‘할 수만 있다면’이 무슨 말이냐? 믿는 사람에게는 모든 것이 가능하다.” -마가복음(막) 9장 23절-
+"'If you can'?" said Jesus. "Everything is possible for him who believes." -Mark(Mark) 9:23-
+
+소년의 아버지가 즉시 소리쳤습니다. “제가 믿습니다! 제 믿음 없는 것을 도와 주십시오!” -마가복음(막) 9장 24절-
+Immediately the boy's father exclaimed, "I do believe, help me overcome my unbelief!" -Mark(Mark) 9:24-
+
+예수님께서 제자들을 가르치셨습니다. “인자가 사람들의 손에 넘겨질 것이고, 그들은 인자를 죽일 것이다. 그러나 죽은 지 삼 일 뒤에 다시 살아날 것이다.” -마가복음(막) 9장 31절-
+because he was teaching his disciples. He said to them, "The Son of Man is going to be betrayed into the hands of men. They will kill him, and after three days he will rise." -Mark(Mark) 9:31-
+
+예수님께서는 앉으셔서 열두 제자를 부르셨습니다. 그리고 말씀하셨습니다. “누구든지 첫째가 되려면, 다른 모든 사람보다 나중이 되어야 하고, 모든 사람의 종이 되어야 한다.” -마가복음(막) 9장 35절-
+Sitting down, Jesus called the Twelve and said, "If anyone wants to be first, he must be the very last, and the servant of all." -Mark(Mark) 9:35-
+
+그리고 한 어린이를 데려와 제자들 가운데 세우셨습니다. 그 아이를 팔에 안으시고 말씀하셨습니다. -마가복음(막) 9장 36절-
+He took a little child and had him stand among them. Taking him in his arms, he said to them, -Mark(Mark) 9:36-
+
+“누구든지 내 이름으로 이런 어린이 하나를 받아들이면 나를 받아들이는 것이다. 또 누구든지 나를 받아들이는 사람은 나를 받아들인 것이 아니라 나를 보내신 분을 받아들인 것이다.” -마가복음(막) 9장 37절-
+"Whoever welcomes one of these little children in my name welcomes me, and whoever welcomes me does not welcome me but the one who sent me." -Mark(Mark) 9:37-
+
+요한이 예수님께 말했습니다. “선생님, 선생님의 이름으로 귀신을 내쫓는 사람을 보고, 하지 못하게 하였습니다. 그것은 그 사람은 우리를 따르지 않는 사람이기 때문입니다.” -마가복음(막) 9장 38절-
+"Teacher," said John, "we saw a man driving out demons in your name and we told him to stop, because he was not one of us." -Mark(Mark) 9:38-
+
+예수님께서 말씀하셨습니다. “그를 막지 마라. 내 이름으로 기적을 행하고, 곧바로 나에 대해서 나쁜 말을 하는 사람은 없다. -마가복음(막) 9장 39절-
+"Do not stop him," Jesus said. "No one who does a miracle in my name can in the next moment say anything bad about me, -Mark(Mark) 9:39-
+
+우리에게 반대하지 않는 사람은 우리 편이다. -마가복음(막) 9장 40절-
+for whoever is not against us is for us. -Mark(Mark) 9:40-
+
+내가 너희에게 진정으로 말한다. 누구든지, 너희가 그리스도의 사람이기 때문에 마실 물 한 잔을 건네 주는 사람은 결코 상을 잃지 않을 것이다.” -마가복음(막) 9장 41절-
+I tell you the truth, anyone who gives you a cup of water in my name because you belong to Christ will certainly not lose his reward. -Mark(Mark) 9:41-
+
+“또 나를 믿는 어린아이들 가운데 하나를 죄짓게 하는 사람은 차라리 커다란 연자 맷돌을 목에 걸고 바다에 빠지는 것이 더 낫다. -마가복음(막) 9장 42절-
+"And if anyone causes one of these little ones who believe in me to sin, it would be better for him to be thrown into the sea with a large millstone tied around his neck. -Mark(Mark) 9:42-
+
+만일 네 손이 죄짓게 한다면, 그것을 잘라 버려라. 두 손을 가지고 지옥의 꺼지지 않는 불 속으로 던져지는 것보다, 장애인으로 영원한 생명을 누리는 곳에 들어가는 것이 훨씬 낫다. -마가복음(막) 9장 43절-
+If your hand causes you to sin, cut it off. It is better for you to enter life maimed than with two hands to go into hell, where the fire never goes out. -Mark(Mark) 9:43-
+
+만일 네 발이 죄짓게 한다면, 그것을 잘라 버려라. 두 발을 가지고 지옥에 던져지는 것보다 저는 발로 하늘 나라에 들어가는 것이 더 낫다. -마가복음(막) 9장 45절-
+And if your foot causes you to sin, cut it off. It is better for you to enter life crippled than to have two feet and be thrown into hell. -Mark(Mark) 9:45-
+
+만일 네 눈이 죄짓게 한다면, 그것을 뽑아 버려라. 두 눈을 가지고 지옥에 던져지는 것보다, 한 눈만 가지고 하나님 나라에 들어가는 것이 더 낫다. -마가복음(막) 9장 47절-
+And if your eye causes you to sin, pluck it out. It is better for you to enter the kingdom of God with one eye than to have two eyes and be thrown into hell, -Mark(Mark) 9:47-
+
+모든 사람이 소금 절이듯 불로 절여질 것이다. -마가복음(막) 9장 49절-
+Everyone will be salted with fire. -Mark(Mark) 9:49-
+
+소금은 좋은 것이다. 그러나 만일 소금이 짠맛을 잃으면 무엇으로 다시 짜게 하겠느냐? 서로가 소금을 지니고 화목하게 지내라.” -마가복음(막) 9장 50절-
+"Salt is good, but if it loses its saltiness, how can you make it salty again? Have salt in yourselves, and be at peace with each other." -Mark(Mark) 9:50-
+
+그러나 하나님께서 세상을 만드실 때부터 남자와 여자를 만드셨다. -마가복음(막) 10장 6절-
+"But at the beginning of creation God 'made them male and female.' -Mark(Mark) 10:6-
+
+‘그러므로 남자가 자기 아버지와 어머니를 떠나 아내와 더불어 -마가복음(막) 10장 7절-
+'For this reason a man will leave his father and mother and be united to his wife, -Mark(Mark) 10:7-
+
+둘이 한 몸이 될 것이다.’ 따라서 더 이상 둘이 아니라 한 몸이다. -마가복음(막) 10장 8절-
+and the two will become one flesh.' So they are no longer two, but one. -Mark(Mark) 10:8-
+
+그러므로 하나님께서 하나로 만드신 것을 사람이 가르지 마라.” -마가복음(막) 10장 9절-
+Therefore what God has joined together, let man not separate." -Mark(Mark) 10:9-
+
+예수님께서 대답하셨습니다. “자기 아내를 버리고, 다른 여자와 결혼하는 사람은 간음죄를 짓는 것이다. -마가복음(막) 10장 11절-
+He answered, "Anyone who divorces his wife and marries another woman commits adultery against her. -Mark(Mark) 10:11-
+
+자기의 남편을 버리고, 다른 남자와 결혼하는 여자 또한 간음죄를 짓는 것이다.” -마가복음(막) 10장 12절-
+And if she divorces her husband and marries another man, she commits adultery." -Mark(Mark) 10:12-
+
+사람들이 자기의 아이들을 데리고 예수님께 와서, 어루만져 주시기를 원했습니다. 그러나 제자들이 이들을 꾸짖었습니다. -마가복음(막) 10장 13절-
+People were bringing little children to Jesus to have him touch them, but the disciples rebuked them. -Mark(Mark) 10:13-
+
+예수님께서 이것을 보시고 노하시며, 제자들에게 말씀하셨습니다. “어린이들이 내게로 오게 놔 두어라. 그들을 막지 마라. 하나님 나라는 이런 어린이와 같은 사람들의 것이다. -마가복음(막) 10장 14절-
+When Jesus saw this, he was indignant. He said to them, "Let the little children come to me, and do not hinder them, for the kingdom of God belongs to such as these. -Mark(Mark) 10:14-
+
+내가 너희에게 진정으로 말한다. 어린이처럼 하나님 나라를 받아들이지 않는 사람은, 결코 그 곳에 들어가지 못할 것이다.” -마가복음(막) 10장 15절-
+I tell you the truth, anyone who will not receive the kingdom of God like a little child will never enter it." -Mark(Mark) 10:15-
+
+그리고 예수님께서 어린이들을 팔에 안으시고, 손을 얹어 축복하셨습니다. -마가복음(막) 10장 16절-
+And he took the children in his arms, put his hands on them and blessed them. -Mark(Mark) 10:16-
+
+예수님께서 길을 떠나시려고 할 때, 한 사람이 달려와서 예수님 앞에 무릎을 꿇었습니다. 그리고 여쭈었습니다. “선하신 선생님, 영원한 생명을 상속받으려면 무엇을 해야 합니까?” -마가복음(막) 10장 17절-
+As Jesus started on his way, a man ran up to him and fell on his knees before him. "Good teacher," he asked, "what must I do to inherit eternal life?" -Mark(Mark) 10:17-
+
+예수님께서 대답하셨습니다. “왜 나를 선하다고 하느냐? 오직 하나님 외에는 아무도 선하지 않다. -마가복음(막) 10장 18절-
+"Why do you call me good?" Jesus answered. "No one is good, except God alone. -Mark(Mark) 10:18-
+
+네가 계명을 안다. ‘살인하지 마라. 간음하지 마라. 도둑질하지 마라. 거짓 증거를 대지 마라. 속이지 마라. 네 부모를 공경하여라.’” -마가복음(막) 10장 19절-
+You know the commandments, 'Do not murder, do not commit adultery, do not steal, do not give false testimony, do not defraud, honor your father and mother.'" -Mark(Mark) 10:19-
+
+그 사람이 말했습니다. “선생님, 저는 어려서부터, 이 모든 계명들을 다 지켰습니다.” -마가복음(막) 10장 20절-
+"Teacher," he declared, "all these I have kept since I was a boy." -Mark(Mark) 10:20-
+
+예수님께서 그 사람을 보시고 사랑스럽게 여기셨습니다. 그리고 말씀하셨습니다. “네게 부족한 것 하나가 있다. 가서 네가 가진 것을 모두 팔아 가난한 사람들에게 주어라. 그러면 하늘에서 보화가 있을 것이다. 그리고 와서 나를 따라라.” -마가복음(막) 10장 21절-
+Jesus looked at him and loved him. "One thing you lack," he said. "Go, sell everything you have and give to the poor, and you will have treasure in heaven. Then come, follow me." -Mark(Mark) 10:21-
+
+이 말씀을 듣고, 그 사람은 매우 슬퍼하며 떠나갔습니다. 그것은 그 사람이 많은 재물을 가지고 있었기 때문입니다. -마가복음(막) 10장 22절-
+At this the man's face fell. He went away sad, because he had great wealth. -Mark(Mark) 10:22-
+
+예수님께서 제자들을 보시며 말씀하셨습니다. “부유한 사람이 하나님 나라에 들어가는 것이 얼마나 어려운가!” -마가복음(막) 10장 23절-
+Jesus looked around and said to his disciples, "How hard it is for the rich to enter the kingdom of God!" -Mark(Mark) 10:23-
+
+제자들은 예수님의 말씀에 놀랐습니다. 예수님께서 다시 말씀하셨습니다. “얘들아, 하나님 나라에 들어가는 것이 얼마나 어려운지, -마가복음(막) 10장 24절-
+The disciples were amazed at his words. But Jesus said again, "Children, how hard it is to enter the kingdom of God! -Mark(Mark) 10:24-
+
+부자가 하나님 나라에 들어가는 것보다, 낙타가 바늘귀를 지나가는 것이 더 쉬울 것이다!” -마가복음(막) 10장 25절-
+It is easier for a camel to go through the eye of a needle than for a rich man to enter the kingdom of God." -Mark(Mark) 10:25-
+
+제자들은 더욱더 놀라며 서로 말하였습니다. “그러면 과연 누가 구원 받을 수 있을까?” -마가복음(막) 10장 26절-
+The disciples were even more amazed, and said to each other, "Who then can be saved?" -Mark(Mark) 10:26-
+
+예수님께서 제자들을 바라보시며 말씀하셨습니다. “사람은 할 수 없으나, 하나님께서는 할 수 있다. 하나님께는 모든 것이 가능하다.” -마가복음(막) 10장 27절-
+Jesus looked at them and said, "With man this is impossible, but not with God, all things are possible with God." -Mark(Mark) 10:27-
+
+베드로가 예수님께 말했습니다. “보십시오. 우리는 선생님을 따르려고, 모든 것을 버렸습니다.” -마가복음(막) 10장 28절-
+Peter said to him, "We have left everything to follow you!" -Mark(Mark) 10:28-
+
+예수님께서 말씀하셨습니다. “내가 너희에게 진정으로 말한다. 나와 복음을 위해 자기 집과 형제, 자매, 어머니, 아버지, 자식, 또는 밭을 버린 사람은 -마가복음(막) 10장 29절-
+"I tell you the truth," Jesus replied, "no one who has left home or brothers or sisters or mother or father or children or fields for me and the gospel -Mark(Mark) 10:29-
+
+이 세상에서 핍박과 함께 집, 형제, 자매, 어머니, 자녀 그리고 밭을 백 배로 받을 것이다. 그리고 오는 세대에서는 영원한 생명을 얻을 것이다. -마가복음(막) 10장 30절-
+will fail to receive a hundred times as much in this present age (homes, brothers, sisters, mothers, children and fields, and with them, persecutions) and in the age to come, eternal life. -Mark(Mark) 10:30-
+
+첫째가 꼴찌가 되고, 꼴찌가 첫째가 되는 사람이 많을 것이다.” -마가복음(막) 10장 31절-
+But many who are first will be last, and the last first." -Mark(Mark) 10:31-
+
+“보아라. 우리는 지금 예루살렘으로 간다. 인자가 대제사장과 율법학자들에게 넘겨질 것이다. 그들은 인자에게 사형을 선고하고, 이방 사람들에게 넘겨 줄 것이다. -마가복음(막) 10장 33절-
+"We are going up to Jerusalem," he said, "and the Son of Man will be betrayed to the chief priests and teachers of the law. They will condemn him to death and will hand him over to the Gentiles, -Mark(Mark) 10:33-
+
+이방 사람들은 인자를 조롱하고, 침을 뱉고, 채찍으로 때리고, 죽일 것이다. 그러나 인자는 삼 일 뒤에 다시 살아날 것이다. -마가복음(막) 10장 34절-
+who will mock him and spit on him, flog him and kill him. Three days later he will rise." -Mark(Mark) 10:34-
+
+예수님께서 제자들을 부르시고 말씀하셨습니다. “너희가 아는 것처럼 이방 사람들의 통치자라는 사람들은 사람들을 지배하려고 한다. 고관들도 사람들에게 세도를 부린다. -마가복음(막) 10장 42절-
+Jesus called them together and said, "You know that those who are regarded as rulers of the Gentiles lord it over them, and their high officials exercise authority over them. -Mark(Mark) 10:42-
+
+그러나 너희는 그래서는 안 된다. 누구든지 너희 중에서 높아지려거든 종이 되어야 한다. -마가복음(막) 10장 43절-
+Not so with you. Instead, whoever wants to become great among you must be your servant, -Mark(Mark) 10:43-
+
+누구든지 너희 중에서 첫째가 되려거든 모든 사람의 종이 되어야 한다. -마가복음(막) 10장 44절-
+and whoever wants to be first must be slave of all. -Mark(Mark) 10:44-
+
+인자도 섬김을 받으러 온 것이 아니라, 섬기러 왔다. 인자는 자기 생명을 많은 사람의 대속물로 주려고 왔다.” -마가복음(막) 10장 45절-
+For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many." -Mark(Mark) 10:45-
+
+예수님과 제자들이 예루살렘에 왔습니다. 예수님께서 성전에 들어가셔서, 성전에서 사고파는 사람들을 내쫓으셨습니다. 그리고 돈 바꾸어 주는 사람들의 책상과 비둘기 파는 사람들의 자리를 뒤엎으셨습니다. -마가복음(막) 11장 15절-
+On reaching Jerusalem, Jesus entered the temple area and began driving out those who were buying and selling there. He overturned the tables of the money changers and the benches of those selling doves, -Mark(Mark) 11:15-
+
+예수님께서 그 누구도 물건을 가지고 성전의 뜰을 가로질러 가지 못하게 하셨습니다. -마가복음(막) 11장 16절-
+and would not allow anyone to carry merchandise through the temple courts. -Mark(Mark) 11:16-
+
+그리고 사람들을 가르치셨습니다. “성경에 이렇게 쓰여 있다. ‘나의 집은 모든 민족의 기도하는 집이라고 불릴 것이다.’ 그런데 너희는 ‘강도의 소굴’로 바꾸었다.” -마가복음(막) 11장 17절-
+And as he taught them, he said, "Is it not written, "'My house will be called a house of prayer for all nations'? But you have made it 'a den of robbers.'" -Mark(Mark) 11:17-
+
+내가 너희에게 진정으로 말한다. 누구든지 이 산을 향하여 ‘뽑혀서 바다에 던져져라’ 하고 말하고, 마음속에 아무 의심 없이 말한 대로 될 줄 믿으면, 그대로 이루어질 것이다. -마가복음(막) 11장 23절-
+"I tell you the truth, if anyone says to this mountain, 'Go, throw yourself into the sea,' and does not doubt in his heart but believes that what he says will happen, it will be done for him. -Mark(Mark) 11:23-
+
+그러므로 내가 너희에게 말한다. 너희가 기도하고, 구한 모든 것은 받은 줄로 믿어라. 그러면 이루어질 것이다. -마가복음(막) 11장 24절-
+Therefore I tell you, whatever you ask for in prayer, believe that you have received it, and it will be yours. -Mark(Mark) 11:24-
+
+너희가 서서 기도할 때, 다른 사람과 원수된 일이 있으면, 그를 용서하여라. 그래야 하늘에 계신 너희 아버지께서도 너희의 죄를 용서하실 것이다.” -마가복음(막) 11장 25절-
+And when you stand praying, if you hold anything against anyone, forgive him, so that your Father in heaven may forgive you your sins." -Mark(Mark) 11:25-
+
+그러나 너희가 용서하지 않으면 하늘에 계신 너희 아버지께서도 너희 죄를 용서하지 않을 것이다. -마가복음(막) 11장 26절-
+But if you do not forgive, neither will your Father who is in heaven forgive your sins. -Mark(Mark) 11:26-
+
+그래서 예수님께 “우리는 모르오” 하고 대답했습니다. 예수님께서도 “그러면 나도 너희에게, 내가 무슨 권한으로 이런 일을 하는지 말하지 않겠다”라고 말씀하셨습니다. -마가복음(막) 11장 33절-
+So they answered Jesus, "We don't know." Jesus said, "Neither will I tell you by what authority I am doing these things." -Mark(Mark) 11:33-
+
+예수님께서는 비유로 사람들에게 말씀하기 시작하셨습니다. “어떤 사람이 포도밭을 가꾸었다. 그리고 주위에 담장을 치고, 포도즙을 짤 구덩이를 파고, 망대를 세웠다. 그리고 포도밭을 농부들에게 빌려 주고 여행을 떠났다. -마가복음(막) 12장 1절-
+He then began to speak to them in parables, "A man planted a vineyard. He put a wall around it, dug a pit for the winepress and built a watchtower. Then he rented the vineyard to some farmers and went away on a journey. -Mark(Mark) 12:1-
+
+때가 되자, 주인은 농부들에게 종을 보내어 포도밭에서 난 자기 몫의 수확물을 가져오게 했다. -마가복음(막) 12장 2절-
+At harvest time he sent a servant to the tenants to collect from them some of the fruit of the vineyard. -Mark(Mark) 12:2-
+
+그러나 농부들은 그 종을 붙잡아 때린 후, 빈손으로 쫓아 버렸다. -마가복음(막) 12장 3절-
+But they seized him, beat him and sent him away empty-handed. -Mark(Mark) 12:3-
+
+다시 주인은 다른 종을 그들에게 보냈다. 그러자 그들은 그의 머리를 때리고, 깔보고 업신여겼다. -마가복음(막) 12장 4절-
+Then he sent another servant to them, they struck this man on the head and treated him shamefully. -Mark(Mark) 12:4-
+
+다시 주인은 다른 종을 보냈다. 그러자 그들은 그 하인을 죽였다. 다른 많은 종들을 보냈지만, 농부들은 때리기도 하고 죽이기도 하였다. -마가복음(막) 12장 5절-
+He sent still another, and that one they killed. He sent many others, some of them they beat, others they killed. -Mark(Mark) 12:5-
+
+주인에게는 한 사람이 더 있었는데, 바로 그의 사랑하는 아들이었다. 결국 주인은 아들을 농부들에게 보내면서 말했다. ‘농부들이 내 아들은 존중할 것이다.’ -마가복음(막) 12장 6절-
+"He had one left to send, a son, whom he loved. He sent him last of all, saying, 'They will respect my son.' -Mark(Mark) 12:6-
+
+그러나 농부들은 서로 말했다. ‘이 사람은 주인의 상속자이다. 어서 그를 죽이자. 그러면 유산이 우리의 것이 될 것이다.’ -마가복음(막) 12장 7절-
+"But the tenants said to one another, 'This is the heir. Come, let's kill him, and the inheritance will be ours.' -Mark(Mark) 12:7-
+
+농부들은 아들을 잡아다 죽인 후, 포도밭 밖으로 던져 버렸다. -마가복음(막) 12장 8절-
+So they took him and killed him, and threw him out of the vineyard. -Mark(Mark) 12:8-
+
+포도밭의 주인이 이제 어떻게 하겠느냐? 그는 포도밭에 가서 농부들을 다 죽이고, 포도밭을 다른 농부들에게 줄 것이다. -마가복음(막) 12장 9절-
+"What then will the owner of the vineyard do? He will come and kill those tenants and give the vineyard to others. -Mark(Mark) 12:9-
+
+그들은 이 비유가 자기들을 빗대어 하신 것임을 알고, 예수님을 체포하길 원했습니다. 그러나 백성들을 두려워하여, 예수님을 두고 떠나가 버렸습니다. -마가복음(막) 12장 12절-
+Then they looked for a way to arrest him because they knew he had spoken the parable against them. But they were afraid of the crowd, so they left him and went away. -Mark(Mark) 12:12-
+
+부활이 없다고 주장하는 사두개파 사람 몇 명이 예수님께 왔습니다. 그리고 예수님께 질문을 했습니다. -마가복음(막) 12장 18절-
+Then the Sadducees, who say there is no resurrection, came to him with a question. -Mark(Mark) 12:18-
+
+“선생님, 모세는 ‘형이 자식이 없이 아내만 남겨 두고 죽으면, 동생이 그 형수와 결혼하고 형을 위하여 자식을 길러라’ 하고 기록했습니다. -마가복음(막) 12장 19절-
+"Teacher," they said, "Moses wrote for us that if a man's brother dies and leaves a wife but no children, the man must marry the widow and have children for his brother. -Mark(Mark) 12:19-
+
+일곱 형제가 있었는데, 맏형이 결혼하고 자식이 없이 죽었습니다. -마가복음(막) 12장 20절-
+Now there were seven brothers. The first one married and died without leaving any children. -Mark(Mark) 12:20-
+
+그래서 둘째가 형수와 결혼을 했는데, 역시 자식이 없이 죽었습니다. 셋째도 마찬가지였습니다. -마가복음(막) 12장 21절-
+The second one married the widow, but he also died, leaving no child. It was the same with the third. -Mark(Mark) 12:21-
+
+일곱 형제 모두가 자식을 남기지 못했습니다. 나중에 여자도 죽었습니다. -마가복음(막) 12장 22절-
+In fact, none of the seven left any children. Last of all, the woman died too. -Mark(Mark) 12:22-
+
+그러면 다시 살아날 때, 그 여자는 그들 중에 누구의 아내가 되겠습니까? 일곱 형제가 모두 그를 아내로 맞이했으니 말입니다.” -마가복음(막) 12장 23절-
+At the resurrection whose wife will she be, since the seven were married to her?" -Mark(Mark) 12:23-
+
+예수님께서 대답하셨습니다. “너희가 성경도 모르고 하나님의 능력도 몰라서 잘못 생각하는 것이 아니냐? -마가복음(막) 12장 24절-
+Jesus replied, "Are you not in error because you do not know the Scriptures or the power of God? -Mark(Mark) 12:24-
+
+사람들이 죽은 사람들 중에서 다시 살아날 때에는, 장가도 가지 않고, 시집도 가지 않는다. 그들은 마치 하늘에 있는 천사처럼 될 것이다. -마가복음(막) 12장 25절-
+When the dead rise, they will neither marry nor be given in marriage, they will be like the angels in heaven. -Mark(Mark) 12:25-
+
+죽은 사람이 다시 살아나는 것에 대해서는, 모세의 책에 기록된 떨기나무 대목에서 하나님께서 모세에게 어떻게 말씀하셨는지를 읽어 보지 못했느냐? 하나님께서 모세에게 ‘나는 아브라함의 하나님, 이삭의 하나님, 그리고 야곱의 하나님이다’라고 말씀하시지 않았느냐? -마가복음(막) 12장 26절-
+Now about the dead rising, have you not read in the book of Moses, in the account of the bush, how God said to him, 'I am the God of Abraham, the God of Isaac, and the God of Jacob'? -Mark(Mark) 12:26-
+
+하나님께서는 죽은 사람들의 하나님이 아니라, 살아 있는 사람들의 하나님이다. 너희가 크게 잘못 생각하고 있다.” -마가복음(막) 12장 27절-
+He is not the God of the dead, but of the living. You are badly mistaken!" -Mark(Mark) 12:27-
+
+율법학자 가운데 한 사람이 다가와서 논쟁하는 것을 들었습니다. 예수님께서 사두개파 사람들에게 잘 대답하시는 것을 보고, 그가 물었습니다. “모든 계명 중에 어떤 것이 가장 중요합니까?” -마가복음(막) 12장 28절-
+One of the teachers of the law came and heard them debating. Noticing that Jesus had given them a good answer, he asked him, "Of all the commandments, which is the most important?" -Mark(Mark) 12:28-
+
+예수님께서 대답하셨습니다. “가장 중요한 계명은 이것이다. ‘이스라엘아, 들어라! 주 우리 하나님은 한 분이시다. -마가복음(막) 12장 29절-
+"The most important one," answered Jesus, "is this, 'Hear, O Israel, the Lord our God, the Lord is one. -Mark(Mark) 12:29-
+
+네 모든 마음과 모든 영혼과 모든 뜻과 모든 힘을 다하여, 주 너희 하나님을 사랑하여라.’ -마가복음(막) 12장 30절-
+Love the Lord your God with all your heart and with all your soul and with all your mind and with all your strength.' -Mark(Mark) 12:30-
+
+두 번째로 중요한 계명은 이것이다. ‘네 이웃을 네 몸같이 사랑하여라.’ 이 계명들보다 더 중요한 계명은 없다.” -마가복음(막) 12장 31절-
+The second is this, 'Love your neighbor as yourself.' There is no commandment greater than these." -Mark(Mark) 12:31-
+
+율법학자가 예수님께 말했습니다. “옳습니다, 선생님. 하나님께서는 한 분이시고, 그 외에는 다른 신이 없습니다. -마가복음(막) 12장 32절-
+"Well said, teacher," the man replied. "You are right in saying that God is one and there is no other but him. -Mark(Mark) 12:32-
+
+모든 마음과 모든 지식과 모든 힘을 다하여 하나님을 사랑하고, 이웃을 자기 자신처럼 사랑하는 것이, 다른 모든 번제물이나 희생 제물보다 더 중요합니다.” -마가복음(막) 12장 33절-
+To love him with all your heart, with all your understanding and with all your strength, and to love your neighbor as yourself is more important than all burnt offerings and sacrifices." -Mark(Mark) 12:33-
+
+예수님께서는 이 사람이 지혜롭게 대답하는 것을 보시고 말씀하셨습니다. “너는 하나님 나라에 가깝구나.” 그 뒤로는 아무도 감히 예수님께 더 묻지 않았습니다. -마가복음(막) 12장 34절-
+When Jesus saw that he had answered wisely, he said to him, "You are not far from the kingdom of God." And from then on no one dared ask him any more questions. -Mark(Mark) 12:34-
+
+예수님께서 가르치시면서 말씀하셨습니다. “율법학자들을 주의하여라. 이들은 긴 옷을 입고 걸어다니기를 좋아하고, 장터에서 인사받기를 좋아한다. -마가복음(막) 12장 38절-
+As he taught, Jesus said, "Watch out for the teachers of the law. They like to walk around in flowing robes and be greeted in the marketplaces, -Mark(Mark) 12:38-
+
+이들은 회당에서 높은 자리를 좋아하고, 잔치에서도 윗자리를 좋아한다. -마가복음(막) 12장 39절-
+and have the most important seats in the synagogues and the places of honor at banquets. -Mark(Mark) 12:39-
+
+이들은 과부의 집을 삼키며, 사람들에게 보이기 위해 길게 기도한다. 이런 사람들은 더 큰 심판을 받을 것이다.” -마가복음(막) 12장 40절-
+They devour widows' houses and for a show make lengthy prayers. Such men will be punished most severely." -Mark(Mark) 12:40-
+
+예수님께서 헌금함 맞은편에 앉으셔서, 사람들이 어떻게 헌금하는가를 보셨습니다. 여러 명의 부자들이 많은 돈을 헌금했습니다. -마가복음(막) 12장 41절-
+Jesus sat down opposite the place where the offerings were put and watched the crowd putting their money into the temple treasury. Many rich people threw in large amounts. -Mark(Mark) 12:41-
+
+가난한 과부가 와서 렙돈 동전 두 개, 즉 한 고드란트를 넣었습니다. -마가복음(막) 12장 42절-
+But a poor widow came and put in two very small copper coins, worth only a fraction of a penny. -Mark(Mark) 12:42-
+
+예수님께서 제자들을 부르신 후 말씀하셨습니다. “내가 너희에게 진정으로 말한다. 이 가난한 과부가 헌금함에 돈을 넣은 다른 모든 사람들보다 더 많이 헌금을 하였다. -마가복음(막) 12장 43절-
+Calling his disciples to him, Jesus said, "I tell you the truth, this poor widow has put more into the treasury than all the others. -Mark(Mark) 12:43-
+
+다른 모든 사람들은 넉넉한 중에서 헌금을 하였지만, 과부는 가지고 있던 모든 것, 즉 생활에 필요한 돈 전부를 바쳤다.” -마가복음(막) 12장 44절-
+They all gave out of their wealth, but she, out of her poverty, put in everything, all she had to live on." -Mark(Mark) 12:44-
+
+“우리들에게 말씀해 주십시오. 언제 이런 일들이 일어나고, 이런 일들이 이루어질 때에 무슨 징조가 있겠습니까?” -마가복음(막) 13장 4절-
+"Tell us, when will these things happen? And what will be the sign that they are all about to be fulfilled?" -Mark(Mark) 13:4-
+
+예수님께서 그들에게 말씀하기 시작하셨습니다. “아무도 너희를 속이지 못하게 조심하여라. -마가복음(막) 13장 5절-
+Jesus said to them, "Watch out that no one deceives you. -Mark(Mark) 13:5-
+
+많은 사람들이 내 이름으로 와서 ‘내가 바로 그리스도다’라고 말할 것이다. 그리고 많은 사람들을 속일 것이다. -마가복음(막) 13장 6절-
+Many will come in my name, claiming, 'I am he,' and will deceive many. -Mark(Mark) 13:6-
+
+너희는 전쟁에 대한 소식과 소문을 들을 것이다. 그러나 두려워하지 마라. 이런 일들은 반드시 일어나야 한다. 그러나 끝은 아직 아니다. -마가복음(막) 13장 7절-
+When you hear of wars and rumors of wars, do not be alarmed. Such things must happen, but the end is still to come. -Mark(Mark) 13:7-
+
+민족이 다른 민족과 싸우려고 일어나고, 나라가 나라와 싸우려고 일어날 것이다. 여러 곳에서 지진이 일어나고, 기근도 있을 것이다. 이런 것들은 출산하는 진통의 시작에 불과하다. -마가복음(막) 13장 8절-
+Nation will rise against nation, and kingdom against kingdom. There will be earthquakes in various places, and famines. These are the beginning of birth pains. -Mark(Mark) 13:8-
+
+너희는 주의하여라. 사람들이 너희를 법정에 넘길 것이고, 너희는 회당에서 매를 맞을 것이다. 너희가 나 때문에, 총독들과 임금 앞에 서게 되어, 그들에게 증언할 것이다. -마가복음(막) 13장 9절-
+"You must be on your guard. You will be handed over to the local councils and flogged in the synagogues. On account of me you will stand before governors and kings as witnesses to them. -Mark(Mark) 13:9-
+
+그러나 먼저 복음이 모든 민족에게 전해질 것이다. -마가복음(막) 13장 10절-
+And the gospel must first be preached to all nations. -Mark(Mark) 13:10-
+
+사람들이 너희를 체포하여 재판에 넘길 때, ‘무엇을 말할까’ 하고 걱정하지 마라. 그 때에 하나님께서 너희에게 주시는 것들을 말하여라. 말하는 것은 너희가 아니고, 성령님이시다. -마가복음(막) 13장 11절-
+Whenever you are arrested and brought to trial, do not worry beforehand about what to say. Just say whatever is given you at the time, for it is not you speaking, but the Holy Spirit. -Mark(Mark) 13:11-
+
+형이 동생을 죽게 내주고, 아버지가 자식들을 내주고, 자식들이 부모를 거역하여 일어나며, 죽게 할 것이다. -마가복음(막) 13장 12절-
+"Brother will betray brother to death, and a father his child. Children will rebel against their parents and have them put to death. -Mark(Mark) 13:12-
+
+내 이름 때문에, 너희가 미움을 받을 것이다. 그러나 끝까지 견디는 사람은 구원 받을 것이다. -마가복음(막) 13장 13절-
+All men will hate you because of me, but he who stands firm to the end will be saved. -Mark(Mark) 13:13-
+
+멸망케 하는 혐오할 만한 것이 서 있지 않아야 할 곳에 서 있는 것을 보거든 (읽는 사람은 깨달아라) 유대에 있는 사람들은 산으로 도망하여라. -마가복음(막) 13장 14절-
+"When you see 'the abomination that causes desolation' standing where it does not belong, let the reader understand, then let those who are in Judea flee to the mountains. -Mark(Mark) 13:14-
+
+지붕 위에 있는 사람은 집에 있는 것을 가지고 나오려고 내려와 들어가지 마라. -마가복음(막) 13장 15절-
+Let no one on the roof of his house go down or enter the house to take anything out. -Mark(Mark) 13:15-
+
+밭에 있는 사람은 옷을 가지려고 돌아서지 마라. -마가복음(막) 13장 16절-
+Let no one in the field go back to get his cloak. -Mark(Mark) 13:16-
+
+그 때에는 임신한 여자들이나, 아이에게 젖을 먹이는 여자들에게 화가 있다. -마가복음(막) 13장 17절-
+How dreadful it will be in those days for pregnant women and nursing mothers! -Mark(Mark) 13:17-
+
+이런 일이 겨울에 일어나지 않도록 기도하여라. -마가복음(막) 13장 18절-
+Pray that this will not take place in winter, -Mark(Mark) 13:18-
+
+그 때에는 환난이 있을 것인데, 이런 환난은 하나님께서 세상을 만드신 때부터 지금까지 없었던 것이며, 앞으로도 이런 환난은 없을 것이다. -마가복음(막) 13장 19절-
+because those will be days of distress unequaled from the beginning, when God created the world, until now, and never to be equaled again. -Mark(Mark) 13:19-
+
+주님께서 이 날들을 줄여 주시지 않는다면, 어느 생명도 구원 받지 못할 것이다. 그러나 하나님께서 선택한 사람들을 위하여, 이 날들을 줄이셨다. -마가복음(막) 13장 20절-
+If the Lord had not cut short those days, no one would survive. But for the sake of the elect, whom he has chosen, he has shortened them. -Mark(Mark) 13:20-
+
+그 때에 어떤 사람이 ‘여보시오, 그리스도가 여기 계십니다!’ 또는 ‘저기 계십니다!’ 하고 말해도 믿지 마라. -마가복음(막) 13장 21절-
+At that time if anyone says to you, 'Look, here is the Christ!' or, 'Look, there he is!' do not believe it. -Mark(Mark) 13:21-
+
+거짓 그리스도와 거짓 예언자들이 일어나서 증거와 기적을 보여 줄 것이다. 그래서 가능하면 선택된 사람들을 잘못된 길로 인도하려고 할 것이다. -마가복음(막) 13장 22절-
+For false Christs and false prophets will appear and perform signs and miracles to deceive the elect, if that were possible. -Mark(Mark) 13:22-
+
+그러므로 조심하여라. 내가 모든 것을 미리 일러 주었다.” -마가복음(막) 13장 23절-
+So be on your guard, I have told you everything ahead of time. -Mark(Mark) 13:23-
+
+“그러나 그 때에 환난이 지나가면, ‘해가 어두워지고, 달이 그 빛을 내지 않을 것이다. -마가복음(막) 13장 24절-
+"But in those days, following that distress, "'the sun will be darkened, and the moon will not give its light, -Mark(Mark) 13:24-
+
+별들이 하늘에서 떨어지고, 하늘에 있는 권세들이 흔들릴 것이다.’ -마가복음(막) 13장 25절-
+the stars will fall from the sky, and the heavenly bodies will be shaken.' -Mark(Mark) 13:25-
+
+사람들은 인자가 큰 능력과 영광으로 구름 가운데 오는 것을 볼 것이다. -마가복음(막) 13장 26절-
+"At that time men will see the Son of Man coming in clouds with great power and glory. -Mark(Mark) 13:26-
+
+그리고 인자가 천사들을 보내어, 땅 끝에서 하늘 끝까지, 사방에서 선택된 사람들을 모을 것이다.” -마가복음(막) 13장 27절-
+And he will send his angels and gather his elect from the four winds, from the ends of the earth to the ends of the heavens. -Mark(Mark) 13:27-
+
+“무화과나무로부터 교훈을 배워라. 가지가 부드러워지고 새 잎을 내면 여름이 가까운 줄 안다. -마가복음(막) 13장 28절-
+"Now learn this lesson from the fig tree, As soon as its twigs get tender and its leaves come out, you know that summer is near. -Mark(Mark) 13:28-
+
+이처럼 이런 일들이 일어나는 것을 보면, 인자가 바로 문 앞에 가까이 온 줄 알아라. -마가복음(막) 13장 29절-
+Even so, when you see these things happening, you know that it is near, right at the door. -Mark(Mark) 13:29-
+
+“그 날과 그 때는 아무도 모른다. 하늘에 있는 천사도 모르고, 아들도 모르고, 오직 아버지만이 아신다. -마가복음(막) 13장 32절-
+"No one knows about that day or hour, not even the angels in heaven, nor the Son, but only the Father. -Mark(Mark) 13:32-
+
+주의하여라! 항상 경계하여라! 그것은 그 때가 언제인지 알지 못하기 때문이다. -마가복음(막) 13장 33절-
+Be on guard! Be alert! You do not know when that time will come. -Mark(Mark) 13:33-
+
+마치 여행을 떠나는 어떤 사람과 같다. 그는 집을 떠나면서, 자기 종들에게 집을 돌보라고 맡겼다. 각각 임무를 주었는데, 문지기에게는 집을 잘 지키라고 명령했다. -마가복음(막) 13장 34절-
+It's like a man going away, He leaves his house and puts his servants in charge, each with his assigned task, and tells the one at the door to keep watch. -Mark(Mark) 13:34-
+
+그러므로 깨어 있어라. 집주인이 언제 돌아올지, 저녁에 혹은 밤중에 혹은 새벽 닭이 울 때 혹은 아침 무렵에 올지 모르기 때문이다. -마가복음(막) 13장 35절-
+"Therefore keep watch because you do not know when the owner of the house will come back, whether in the evening, or at midnight, or when the rooster crows, or at dawn. -Mark(Mark) 13:35-
+
+그가 갑자기 돌아와서, 너희가 자고 있는 것을 보지 않게 하라. -마가복음(막) 13장 36절-
+If he comes suddenly, do not let him find you sleeping. -Mark(Mark) 13:36-
+
+내가 너희에게 말하는 것은, 모두에게 하는 말이다. ‘항상 깨어 있어라!’” -마가복음(막) 13장 37절-
+What I say to you, I say to everyone, 'Watch!'" -Mark(Mark) 13:37-
+
+식사를 하는 동안, 예수님께서는 빵을 들고 감사 기도를 드리셨습니다. 그리고 떼어서 제자들에게 주시며 말씀하셨습니다. “받아라. 이것은 나의 몸이다.” -마가복음(막) 14장 22절-
+While they were eating, Jesus took bread, gave thanks and broke it, and gave it to his disciples, saying, "Take it, this is my body." -Mark(Mark) 14:22-
+
+또 잔을 들고 감사 기도를 드리셨습니다. 그리고 제자들에게 잔을 주어, 제자들이 마셨습니다. -마가복음(막) 14장 23절-
+Then he took the cup, gave thanks and offered it to them, and they all drank from it. -Mark(Mark) 14:23-
+
+예수님께서 말씀하셨습니다. “이것은 많은 사람들을 위해 쏟는 나의 피, 곧 언약의 피다. -마가복음(막) 14장 24절-
+"This is my blood of the covenant, which is poured out for many," he said to them. -Mark(Mark) 14:24-
+
+내가 진정으로 너희에게 말한다. 내가 하나님 나라에서 새 것으로 마실 그 날이 올 때까지는 결코 다시 포도나무에서 난 것을 마시지 않을 것이다.” -마가복음(막) 14장 25절-
+"I tell you the truth, I will not drink again of the fruit of the vine until that day when I drink it anew in the kingdom of God." -Mark(Mark) 14:25-
+
+예수님과 제자들이 겟세마네라고 하는 곳으로 갔습니다. 예수님께서 제자들에게 말씀하셨습니다. “내가 기도하는 동안에 여기 앉아 있어라.” -마가복음(막) 14장 32절-
+They went to a place called Gethsemane, and Jesus said to his disciples, "Sit here while I pray." -Mark(Mark) 14:32-
+
+예수님께서는 베드로와 야고보 그리고 요한을 데리고 가셨습니다. 예수님께서는 매우 근심하며 괴로워하셨습니다. -마가복음(막) 14장 33절-
+He took Peter, James and John along with him, and he began to be deeply distressed and troubled. -Mark(Mark) 14:33-
+
+예수님께서 말씀하셨습니다. “내 영혼이 심히 괴로워 죽을 지경이다. 여기서 머무르면서 깨어 있어라.” -마가복음(막) 14장 34절-
+"My soul is overwhelmed with sorrow to the point of death," he said to them. "Stay here and keep watch." -Mark(Mark) 14:34-
+
+예수님께서 조금 더 가셔서 땅에 엎드리셨습니다. 그리고 할 수만 있다면, 그 때가 지나가 버리기를 기도하셨습니다. -마가복음(막) 14장 35절-
+Going a little farther, he fell to the ground and prayed that if possible the hour might pass from him. -Mark(Mark) 14:35-
+
+예수님께서 기도하셨습니다. “아바, 아버지! 아버지께서는 모든 것을 하실 수 있으시니, 이 잔을 없애 주십시오. 그러나 제 뜻대로 하지 마시고 아버지의 뜻대로 하십시오.” -마가복음(막) 14장 36절-
+"Abba, Father," he said, "everything is possible for you. Take this cup from me. Yet not what I will, but what you will." -Mark(Mark) 14:36-
+
+예수님께서 제자들에게 오셔서 자고 있는 것을 보시고, 베드로에게 말씀하셨습니다. “시몬아, 자고 있느냐? 나와 함께 한 시간도 깨어 있을 수 없더냐? -마가복음(막) 14장 37절-
+Then he returned to his disciples and found them sleeping. "Simon," he said to Peter, "are you asleep? Could you not keep watch for one hour? -Mark(Mark) 14:37-
+
+시험에 들지 않도록 깨어서 기도하여라. 영은 원하지만, 몸이 연약하구나.” -마가복음(막) 14장 38절-
+Watch and pray so that you will not fall into temptation. The spirit is willing, but the body is weak." -Mark(Mark) 14:38-
+
+다시 예수님께서 제자들을 떠나서 같은 말씀으로 기도하셨습니다. -마가복음(막) 14장 39절-
+Once more he went away and prayed the same thing. -Mark(Mark) 14:39-
+
+그리고 다시 제자들에게 오셔서 자고 있는 모습을 보셨습니다. 그것은 제자들이 너무 졸렸기 때문입니다. 제자들은 예수님께 무슨 말을 해야 할지 몰랐습니다. -마가복음(막) 14장 40절-
+When he came back, he again found them sleeping, because their eyes were heavy. They did not know what to say to him. -Mark(Mark) 14:40-
+
+세 번째 예수님께서 오셔서 말씀하셨습니다. “아직도 자고 있느냐? 아직도 쉬고 있느냐? 그만하면 됐다! 이제 시간이 되었다. 보아라! 인자가 죄인들의 손에 넘겨진다. -마가복음(막) 14장 41절-
+Returning the third time, he said to them, "Are you still sleeping and resting? Enough! The hour has come. Look, the Son of Man is betrayed into the hands of sinners. -Mark(Mark) 14:41-
+
+예수님께서 제자들에게 말씀하셨습니다. “온 세상으로 가거라. 온 세상에 복음을 전하여라. -마가복음(막) 16장 15절-
+He said to them, "Go into all the world and preach the good news to all creation. -Mark(Mark) 16:15-
+
+믿고 세례를 받는 사람은 구원을 받을 것이다. 그러나 믿지 않는 사람은 심판을 받을 것이다. -마가복음(막) 16장 16절-
+Whoever believes and is baptized will be saved, but whoever does not believe will be condemned. -Mark(Mark) 16:16-
+
+믿는 사람들에게는 이러한 증거가 따라올 것이다. 내 이름으로 귀신을 내쫓고, 배우지 않은 새로운 말을 하고, -마가복음(막) 16장 17절-
+And these signs will accompany those who believe, In my name they will drive out demons, they will speak in new tongues, -Mark(Mark) 16:17-
+
+손으로 뱀을 집어 들고, 독을 마셔도 아무런 해를 받지 않을 것이며, 환자에게 손을 얹으면 나을 것이다.” -마가복음(막) 16장 18절-
+they will pick up snakes with their hands, and when they drink deadly poison, it will not hurt them at all, they will place their hands on sick people, and they will get well." -Mark(Mark) 16:18-
+
+주 예수님께서 제자들에게 이 말씀을 마치시고, 하늘로 들려 가셨습니다. 그리고 하나님의 오른쪽에 앉으셨습니다. -마가복음(막) 16장 19절-
+After the Lord Jesus had spoken to them, he was taken up into heaven and he sat at the right hand of God. -Mark(Mark) 16:19-
+
+제자들은 곳곳에 다니면서 복음을 전하였습니다. 주님께서 제자들과 함께 일하셨고, 증거를 보여 주심으로 그들이 전하는 말씀이 사실임을 증명해 주셨습니다. -마가복음(막) 16장 20절-
+Then the disciples went out and preached everywhere, and the Lord worked with them and confirmed his word by the signs that accompanied it. -Mark(Mark) 16:20-
