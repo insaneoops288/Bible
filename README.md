@@ -65,7 +65,7 @@
 - **[병자를 위한 기도문을 예수님께서 5가지 원칙을 알려주셨습니다.](https://youtu.be/TsSP_nuR2RI)**		
 
 - **[약으로 낫지 않는 상처, 말씀으로 회복 됩니다](https://youtu.be/YZj-oUVNKIo)**
-- 	
+ 
 - **[수많은 크리스찬들이 속고 있는 믿음이라 착각하는 미신들](https://youtu.be/Q8cguMSxC4Q)**		
 
 - **[천국가는 자는 적다 그러나 대부흥이 온다](https://youtu.be/tz2vKcP-KdY)**		
