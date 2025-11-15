@@ -18,9 +18,9 @@
 
 - **[당신이 죽는 그날 하나님 앞에서 무슨말을 하시겠습니까?](https://youtu.be/zB5i5hz4eyA)**
 
-- **[지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사](https://youtu.be/x3PPJWCDTvg)**
-
 - **[최후의 심판 ,당신의 이름이 생명책에 있나요?](https://youtu.be/VQp9_eG8MzU)**
+
+- **[지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사](https://youtu.be/x3PPJWCDTvg)**
 
 - **[성경에 행복이란 말은 없습니다](https://youtu.be/MkIwXEMpSes)**		
 
