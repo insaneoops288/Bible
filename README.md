@@ -28,9 +28,7 @@
 	
 - **[나를 힘들게 하는 사람, 하나님은 사람을 통해 나를 변화 시키십니다](https://youtu.be/MspsV9tUDak)**		
 
-- **[주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다](https://youtu.be/4jaeZ28YgTw)**				
- 
-- **[병자를 위한 기도문을 예수님께서 5가지 원칙을 알려주셨습니다.](https://youtu.be/TsSP_nuR2RI)**		
+- **[주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다](https://youtu.be/4jaeZ28YgTw)**						
 
 - **[사랑은 모든 것을 이긴다](https://youtu.be/O5kaIpTXiWc)**		
 	
