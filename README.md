@@ -10,7 +10,7 @@
 
 - **[하나님 말씀(우리말 성경)](https://www.youtube.com/watch?v=J1S0Uxajlok&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1)**
 
-- **[하나님 말씀(쉬운성경)](https://www.youtube.com/watch?v=p9raAJR9lTo&list=PLgav7xHKsaJ8yuU9Oh9wLNmMQ8DpyPTiJ&index=1)**
+- **[하나님 말씀(쉬운성경)](https://www.youtube.com/watch?v=LbSIDmbtXs4&list=PLgav7xHKsaJ8yuU9Oh9wLNmMQ8DpyPTiJ&index=1)**
 
 - **[하나님 말씀(ESV)](https://www.youtube.com/watch?v=IO76lm4pgXA&list=PLgav7xHKsaJ8pbA3Hs7XFlw-1RWiv05RE&index=1)**	
  
