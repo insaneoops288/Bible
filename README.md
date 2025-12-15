@@ -115,7 +115,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 
-- **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://www.youtube.com/watch?v=LzDALibL9fI)**
+- **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://youtu.be/SkT-nuRFXGQ)**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible014.png" width="300"> 
 
