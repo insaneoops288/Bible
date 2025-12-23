@@ -12,6 +12,8 @@
 
 # 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
+- **[하나님이 보여주신 한국교회의 경고](https://youtu.be/E8NpvVy75MY)**
+  
 - **[지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사](https://youtu.be/x3PPJWCDTvg)**
 
 - **[성경에 행복이란 말은 없습니다](https://youtu.be/MkIwXEMpSes)**		
