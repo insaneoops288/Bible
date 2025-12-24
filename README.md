@@ -1,6 +1,9 @@
-# 읽어주는 하나님의 말씀 v2.001 입니다. 
+# 읽어주는 하나님의 말씀 v2.001 입니다.
+
+# 당신은 하늘나라에 들어가는 길을 알고 찾았나요?
 
 - **["읽어주는 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
+- **["International 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/WordOfGod_Bible)**
 
 - 한글성경 4가지, 영어성경 5가지를 챕터별로 읽어줄 수 있는 "읽어주는 하나님의 말씀"입니다. 
 
@@ -13,7 +16,9 @@
 # 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
 - **[하나님이 보여주신 한국교회의 경고](https://youtu.be/E8NpvVy75MY)**
-  
+
+- **[이런 신앙생활 하면 100% 천국 못 갑니다](https://youtu.be/b0J0QXnWPsc)**
+
 - **[지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사](https://youtu.be/x3PPJWCDTvg)**
 
 - **[성경에 행복이란 말은 없습니다](https://youtu.be/MkIwXEMpSes)**		
