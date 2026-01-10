@@ -6,6 +6,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo5.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo6.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo7.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo8.jpg" > 
 
 - **["읽어주는 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible016.png" >
