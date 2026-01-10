@@ -14,9 +14,11 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
 
-- **[하나님 말씀(표준새번역 성경)](https://www.youtube.com/watch?v=lIp1zDatOfw&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1)**
+- **[하나님 말씀(쉬운성경)](https://www.youtube.com/watch?v=baqNhqcH90E&list=PLgav7xHKsaJ8WWmZLC4gyLzKBQ8pwR-6Y&index=1)**
 
-- **[하나님 말씀(쉬운성경)](https://www.youtube.com/watch?v=LbSIDmbtXs4&list=PLgav7xHKsaJ8yuU9Oh9wLNmMQ8DpyPTiJ&index=1)**
+- **[하나님 말씀(표준새번역 성경)](https://www.youtube.com/watch?v=-Ld3CkvLVXs&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1)**
+
+- **[하나님 말씀(우리말성경)](https://www.youtube.com/watch?v=3lrYh_ifLBY&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1)**
 
 # 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
