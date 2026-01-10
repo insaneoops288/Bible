@@ -2,6 +2,8 @@
 
 # 당신은 하늘나라에 들어가는 길을 찾았나요?
 
+# Have you found your way to heaven?
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo4.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo5.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo6.jpg" > 
