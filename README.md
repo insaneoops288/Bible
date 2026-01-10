@@ -26,8 +26,6 @@
 
 - **[교회에 나가지 않는 것이 죄 인가요? 예수님이 교회를 세우신 놀라운 이유!](https://youtu.be/h7fRQyiUJI8)**
 
-- **[하나님이 보여주신 한국교회의 경고](https://youtu.be/E8NpvVy75MY)**
-
 - **[이런 신앙생활 하면 100% 천국 못 갑니다](https://youtu.be/b0J0QXnWPsc)**
 
 - **[지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사](https://youtu.be/x3PPJWCDTvg)**
