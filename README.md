@@ -38,9 +38,7 @@
 
 - **[하나님은 착한 사람보다 '이런 사람'을 더 원하십니다](https://youtu.be/N7s8AgHfKj8)**		
 	
-- **[나를 힘들게 하는 사람, 하나님은 사람을 통해 나를 변화 시키십니다](https://youtu.be/MspsV9tUDak)**		
-
-- **[주기도문을 이렇게 기도했더니 놀라운 기적이 일어났습니다](https://youtu.be/4jaeZ28YgTw)**						
+- **[나를 힘들게 하는 사람, 하나님은 사람을 통해 나를 변화 시키십니다](https://youtu.be/MspsV9tUDak)**							
 
 - **[사랑은 모든 것을 이긴다](https://youtu.be/O5kaIpTXiWc)**		
 	
