@@ -4,6 +4,7 @@
 
 # Have you found your way to heaven?
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo14.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo13.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo5.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo11.jpg" > 
