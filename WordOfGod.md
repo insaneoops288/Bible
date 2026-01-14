@@ -77,4 +77,3 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/WordOfGod077.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/WordOfGod078.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/WordOfGod079.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/WordOfGod080.jpg" > 
