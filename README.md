@@ -4,6 +4,8 @@
 
 # Have you found your way to heaven?
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo19.png" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo18.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo14.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo15.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo13.jpg" > 
@@ -14,7 +16,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo9.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo10.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo17.jpg" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchLogo18.jpg" >
+
 
 - **["읽어주는 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible016.png" >
