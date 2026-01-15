@@ -32,6 +32,14 @@
 
 - **[하나님 말씀(우리말성경)](https://www.youtube.com/watch?v=3lrYh_ifLBY&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1)**
 
+- **[하나님 말씀(개역개정)](https://www.youtube.com/watch?v=He_4esriPcA&list=PLgav7xHKsaJ8pbA3Hs7XFlw-1RWiv05RE&index=1)**
+
+- **[WorldOfGod(NIV)](https://www.youtube.com/watch?v=7nEg-M2SA4o&list=PLgav7xHKsaJ-pFw6eETo4Wey8eo5pNRWZ&index=1)**
+
+- **[WorldOfGod(ESV)](https://www.youtube.com/watch?v=iNEKzSGUG1U&list=PLgav7xHKsaJ9CFZqCrdDZ2MAquxwQe33J&index=1)**
+
+- **[WorldOfGod(NewKJV)](https://www.youtube.com/watch?v=U4gTuUsNAZs&list=PLgav7xHKsaJ86ZUYSlIXl3W_v-mLnkD69&index=1)**
+
 # 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
 - **[교회에 나가지 않는 것이 죄 인가요? 예수님이 교회를 세우신 놀라운 이유!](https://youtu.be/h7fRQyiUJI8)**
