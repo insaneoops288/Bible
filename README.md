@@ -4,24 +4,24 @@
 
 # Have you found your way to heaven?
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church00.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church01.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church02.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church04.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church05.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church06.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church07.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church08.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church09.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church10.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church11.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church12.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church13.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church14.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church15.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church16.png" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church17.png" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church00.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church01.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church02.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church04.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church05.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church06.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church07.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church08.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church09.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church10.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church11.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church12.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church13.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church14.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church15.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church16.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church17.jpg" >
 
 
 - **["읽어주는 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
