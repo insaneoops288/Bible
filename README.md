@@ -18,6 +18,9 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church12.png" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church13.png" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church14.png" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church15.png" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church16.png" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church17.png" >
 
 
 - **["읽어주는 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
