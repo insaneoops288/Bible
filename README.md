@@ -4,7 +4,7 @@
 
 # Have you found your way to heaven?
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchWallpaper1.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchWallpaper2.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church01.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church02.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.jpg" >
