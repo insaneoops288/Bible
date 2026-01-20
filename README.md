@@ -1,3 +1,5 @@
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church00.jpg" >
+
 # 읽어주는 하나님의 말씀 v2.006 입니다.
 
 # 당신은 하늘나라에 들어가는 길을 찾았나요?
