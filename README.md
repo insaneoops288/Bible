@@ -1,4 +1,5 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church00.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church22.jpg" >
 
 # 읽어주는 하나님의 말씀 v2.006 입니다.
 
