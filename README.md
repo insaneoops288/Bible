@@ -29,9 +29,9 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church15.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church16.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church17.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church29.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church18.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church19.jpg" >
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church29.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church19a.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church20.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church21.jpg" >
