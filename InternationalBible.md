@@ -1,10 +1,14 @@
 https://github.com/insaneoops288/BibleAfrikaans
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage01.jpg" > 
 
 https://github.com/insaneoops288/BibleAlbanian
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 https://github.com/insaneoops288/BibleChinese
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage03.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage04.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage05.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage06.jpg" > 
 
 https://github.com/insaneoops288/BibleCzech
 
@@ -64,12 +68,9 @@ https://github.com/insaneoops288/Bible
 
 
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage01.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage03.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage04.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage05.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage06.jpg" > 
+
+
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage07.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage08.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage09.jpg" > 
