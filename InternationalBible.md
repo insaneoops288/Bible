@@ -11,19 +11,23 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage06.jpg" > 
 
 # https://github.com/insaneoops288/BibleCzech
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage07.jpg" > 
 
 # https://github.com/insaneoops288/BibleFinnish
-.
+.<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage08.jpg" > 
 
 # https://github.com/insaneoops288/BibleFrench
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage09.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage10.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage11.jpg" > 
 
 # https://github.com/insaneoops288/BibleGerman
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage12.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage13.jpg" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage14.jpg" > 
 
 # https://github.com/insaneoops288/BibleHindi
-
+<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage15.jpg" > 
 
 # https://github.com/insaneoops288/BibleHungarian
 
@@ -71,15 +75,11 @@
 
 
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage07.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage08.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage09.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage10.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage11.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage12.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage13.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage14.jpg" > 
-<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage15.jpg" > 
+
+
+
+
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage16.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage17.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage18.jpg" > 
