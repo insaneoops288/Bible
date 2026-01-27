@@ -12,7 +12,6 @@
 - 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. 
 - It is the word of the Father's devoted love for His children.
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchWallpaper5.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/ChurchWallpaper2.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church04.jpg" >
