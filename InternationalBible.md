@@ -1,5 +1,5 @@
 # https://github.com/insaneoops288/BibleAfrikaans
-- **[WorldOfGod(Afrikaans 1953)]()**
+- **[WorldOfGod(Afrikaans 1953)](https://www.youtube.com/watch?v=2pLJ2GjQsoY&list=PLgav7xHKsaJ9u2PEJaHAL2klSRdISIV8V&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage01.jpg" > 
 
 # https://github.com/insaneoops288/BibleAlbanian
