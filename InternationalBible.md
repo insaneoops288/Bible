@@ -3,7 +3,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage01.jpg" > 
 
 # https://github.com/insaneoops288/BibleAlbanian
-- **[WorldOfGod(Albanian)]()**
+- **[WorldOfGod(Albanian)](https://www.youtube.com/watch?v=SRETVCMhwf0&list=PLgav7xHKsaJ-GJCLiJejZv-w1zbJAbxBr&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 # https://github.com/insaneoops288/BibleChinese
@@ -17,25 +17,25 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage06.jpg" > 
 
 # https://github.com/insaneoops288/BibleCzech
-- **[WorldOfGod(Bible Kralicka)]()**
+- **[WorldOfGod(Bible Kralicka)](https://www.youtube.com/watch?v=9nRu4QM3NMg&list=PLgav7xHKsaJ_nK4grs6ElE1IQtk5XYiAG&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage07.jpg" > 
 
 # https://github.com/insaneoops288/BibleFinnish
-- **[WorldOfGod(La Bible de l'Épée (2005))]()**
+- **[WorldOfGod(La Bible de l'Épée (2005))](https://www.youtube.com/watch?v=gp5vbKF1qqo&list=PLgav7xHKsaJ_dr0obX_TGuJ1t6eej4DSR&index=1)**
 .<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage08.jpg" > 
 
 # https://github.com/insaneoops288/BibleFrench
-- **[WorldOfGod(La Bible de l'Épée (2005))]()**
-- **[WorldOfGod(Ostervald (1996))]()**
-- **[WorldOfGod(Louis Segond 1910)]()**
+- **[WorldOfGod(La Bible de l'Épée (2005))](https://www.youtube.com/watch?v=2Mu9wsHLYqc&list=PLgav7xHKsaJ96MJC2hGF42J21g00-WS1L&index=1)**
+- **[WorldOfGod(Ostervald (1996))](https://www.youtube.com/watch?v=OnhgjAXTdV4&list=PLgav7xHKsaJ_BaPkxIJwzDP1oHXYBob0b&index=1)**
+- **[WorldOfGod(Louis Segond 1910)](https://www.youtube.com/watch?v=-L4lDSv1s-s&list=PLgav7xHKsaJ-KYC4F91nO01Vit8EMsu2K&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage09.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage10.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage11.jpg" > 
 
 # https://github.com/insaneoops288/BibleGerman
-- **[WorldOfGod(Elberfelder (1905))]()**
-- **[WorldOfGod(Luther Bible (1912))]()**
-- **[WorldOfGod(Schlachter Bibel (1951))]()**
+- **[WorldOfGod(Elberfelder (1905))](https://www.youtube.com/watch?v=j4IOI0h2fXc&list=PLgav7xHKsaJ8UKIeaEP346p4OTQBC9R96&index=1)**
+- **[WorldOfGod(Luther Bible (1912))](https://www.youtube.com/watch?v=0zUiTRDZ4sc&list=PLgav7xHKsaJ-EWOMq6dInOGmh7uMIFceS&index=1)**
+- **[WorldOfGod(Schlachter Bibel (1951))](https://www.youtube.com/watch?v=FMixDETX68Y&list=PLgav7xHKsaJ_hN5FG1Absa70uom0A2GAo&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage12.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage13.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage14.jpg" > 
