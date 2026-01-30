@@ -1,3 +1,5 @@
+<!-- -->
+
 # https://github.com/insaneoops288/BibleAfrikaans
 - **[WorldOfGod(Afrikaans 1953)](https://www.youtube.com/watch?v=2pLJ2GjQsoY&list=PLgav7xHKsaJ9u2PEJaHAL2klSRdISIV8V&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage01.jpg" > 
@@ -7,10 +9,10 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 # https://github.com/insaneoops288/BibleChinese
-[comment]: - **[WorldOfGod(Chinese Union (Simplified))]()**
-[comment]: - **[WorldOfGod(Chinese Union (Traditional))]()**
-[comment]: - **[WorldOfGod(Chinese KJV (Simplified))]()**
-[comment]: - **[WorldOfGod(Chinese KJV (Traditional))]()**
+<!--  - **[WorldOfGod(Chinese Union (Simplified))]()** -->
+<!--  - **[WorldOfGod(Chinese Union (Traditional))]()** -->
+<!--  - **[WorldOfGod(Chinese KJV (Simplified))]()** -->
+<!--  - **[WorldOfGod(Chinese KJV (Traditional))]()** -->
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage03.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage04.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage05.jpg" > 
