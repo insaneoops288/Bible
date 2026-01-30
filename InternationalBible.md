@@ -50,7 +50,7 @@
 
 # https://github.com/insaneoops288/BibleIndonesian
 - **[WorldOfGod(Terjemahan Baru (1994))](https://www.youtube.com/watch?v=PIt5UzDfD5o&list=PLgav7xHKsaJ-PUfz1zEKGMxklYDoxG7On&index=1)**
-- **[WorldOfGod(Terjemahan Lama)]()**
+- **[WorldOfGod(Terjemahan Lama)](https://www.youtube.com/watch?v=KwekCxuKcJk&list=PLgav7xHKsaJ9qYCPKSIO8n4gTkI_LOO3U&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage17.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage18.jpg" > 
 
