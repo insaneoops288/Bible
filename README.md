@@ -3,14 +3,12 @@
 
 # 읽어주는 하나님의 말씀 v2.006 입니다.
 
-- 당신은 하늘나라에 들어가는 길을 찾았나요?
-
-- Have you found your way to heaven?
-
-- 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다
-- The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
-- 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. 
-- It is the word of the Father's devoted love for His children.
+당신은 하늘나라에 들어가는 길을 찾았나요?
+Have you found your way to heaven?
+하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다
+The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
+아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. 
+It is the word of the Father's devoted love for His children.
 
 하늘에 계시는 사랑하는 우리 아버지.
 아버지의 말씀인 성경을, 아버지께서 원래 의도하셨던 뜻대로 진실하게 이해할 수 있는 지혜를 저에게 주십시요. 
