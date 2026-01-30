@@ -41,15 +41,15 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage14.jpg" > 
 
 # https://github.com/insaneoops288/BibleHindi
-- **[WorldOfGod(Indian Revised Version (2017 / 2018))]()**
+- **[WorldOfGod(Indian Revised Version (2017 / 2018))](https://www.youtube.com/watch?v=5oNoQXY40f4&list=PLgav7xHKsaJ-665IoCJ5lJn24e9N-Z7VO&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage15.jpg" > 
 
 # https://github.com/insaneoops288/BibleHungarian
-- **[WorldOfGod(Karoli)]()**
+- **[WorldOfGod(Karoli)](https://www.youtube.com/watch?v=DX6VNgyPDMQ&list=PLgav7xHKsaJ9ZjscI7M9toBKBPE7p__Gs&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage16.jpg" > 
 
 # https://github.com/insaneoops288/BibleIndonesian
-- **[WorldOfGod(Terjemahan Baru (1994))]()**
+- **[WorldOfGod(Terjemahan Baru (1994))](https://www.youtube.com/watch?v=PIt5UzDfD5o&list=PLgav7xHKsaJ-PUfz1zEKGMxklYDoxG7On&index=1)**
 - **[WorldOfGod(Terjemahan Lama)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage17.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage18.jpg" > 
@@ -59,8 +59,8 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage19.jpg" > 
 
 # https://github.com/insaneoops288/BibleJapanese
-- **[WorldOfGod(Bungo-yaku: Taisho-kaiyaku (NT) (1950))]()**
-- **[WorldOfGod(Kougo-yaku (1954/1955))]()**
+- **[WorldOfGod(Bungo-yaku: Taisho-kaiyaku (NT) (1950))](https://www.youtube.com/watch?v=8v_wG3nXhSk&list=PLgav7xHKsaJ_V3hxhAfMLJuxcfXE5Ibs9&index=1)**
+- **[WorldOfGod(Kougo-yaku (1954/1955))](https://www.youtube.com/watch?v=-uJBccjgZks&list=PLgav7xHKsaJ-054DqZ8J525cPB4iFWJ0E&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage20.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage21.jpg" > 
 
