@@ -7,10 +7,10 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 # https://github.com/insaneoops288/BibleChinese
-- **[WorldOfGod(Chinese Union (Simplified))]()**
-- **[WorldOfGod(Chinese Union (Traditional))]()**
-- **[WorldOfGod(Chinese KJV (Simplified))]()**
-- **[WorldOfGod(Chinese KJV (Traditional))]()**
+[comment]: - **[WorldOfGod(Chinese Union (Simplified))]()**
+[comment]: - **[WorldOfGod(Chinese Union (Traditional))]()**
+[comment]: - **[WorldOfGod(Chinese KJV (Simplified))]()**
+[comment]: - **[WorldOfGod(Chinese KJV (Traditional))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage03.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage04.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage05.jpg" > 
