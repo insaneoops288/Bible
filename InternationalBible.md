@@ -45,69 +45,69 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage15.jpg" > 
 
 # https://github.com/insaneoops288/BibleHungarian
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Karoli)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage16.jpg" > 
 
 # https://github.com/insaneoops288/BibleIndonesian
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Terjemahan Baru (1994))]()**
+- **[WorldOfGod(Terjemahan Lama)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage17.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage18.jpg" > 
 
 # https://github.com/insaneoops288/BibleItalian
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Diodati (1649))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage19.jpg" > 
 
 # https://github.com/insaneoops288/BibleJapanese
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Bungo-yaku: Taisho-kaiyaku (NT) (1950))]()**
+- **[WorldOfGod(Kougo-yaku (1954/1955))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage20.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage21.jpg" > 
 
 # https://github.com/insaneoops288/BiblePolish
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
+- **[WorldOfGod(NOWEJ BIBLII GDANSKIEJ (2012))]()**
+- **[WorldOfGod(Uwspółcześniona Biblia Gdańska (2017))]()**
+- **[WorldOfGod(Polska Biblia Gdanska (1881))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage22.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage23.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage24.jpg" > 
 
 # https://github.com/insaneoops288/BiblePortuguese
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
+- **[WorldOfGod(radução de João Ferreira de Almeida)]()**
+- **[WorldOfGod(Tradução de João Ferreira de Almeida Revista e Corrigid)]()**
+- **[WorldOfGod(Biblia Livre)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage25.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage26.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage27.jpg" > 
 
 # https://github.com/insaneoops288/BibleRomanian
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Fidela Biblia în limba română (2011-2016))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage28.jpg" > 
 
 # https://github.com/insaneoops288/BibleRussian
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Synodal (1876))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage29.jpg" > 
 
 # https://github.com/insaneoops288/BibleSpanish
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Reina Valera 1909)]()**
+- **[WorldOfGod(Valera Gómez (2010))]()**
+- **[WorldOfGod(Reina Valera Gómez (2004))]()**
+- **[WorldOfGod(Sagradas Escrituras (1569))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage30.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage31.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage32.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage33.jpg" > 
 
 # https://github.com/insaneoops288/BibleTagalog
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Tagalog Ang Biblia (1905))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage34.jpg" > 
 
 # https://github.com/insaneoops288/BibleThai
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Thai KJV)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage35.jpg" > 
 
 # https://github.com/insaneoops288/BibleVietnamese
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Vietnamese Cadman (1934))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage36.jpg" > 
 
 # https://github.com/insaneoops288/Bible
