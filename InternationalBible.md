@@ -1,44 +1,47 @@
 # https://github.com/insaneoops288/BibleAfrikaans
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Afrikaans 1953)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage01.jpg" > 
 
 # https://github.com/insaneoops288/BibleAlbanian
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Albanian)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 # https://github.com/insaneoops288/BibleChinese
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Chinese Union (Simplified))]()**
+- **[WorldOfGod(Chinese Union (Traditional))]()**
+- **[WorldOfGod(Chinese KJV (Simplified))]()**
+- **[WorldOfGod(Chinese KJV (Traditional))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage03.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage04.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage05.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage06.jpg" > 
 
 # https://github.com/insaneoops288/BibleCzech
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Bible Kralicka)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage07.jpg" > 
 
 # https://github.com/insaneoops288/BibleFinnish
-- **[WorldOfGod()]()**
+- **[WorldOfGod(La Bible de l'Épée (2005))]()**
 .<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage08.jpg" > 
 
 # https://github.com/insaneoops288/BibleFrench
+- **[WorldOfGod(La Bible de l'Épée (2005))]()**
+- **[WorldOfGod(Ostervald (1996))]()**
+- **[WorldOfGod(Louis Segond 1910)]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage09.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage10.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage11.jpg" > 
 
 # https://github.com/insaneoops288/BibleGerman
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Elberfelder (1905))]()**
+- **[WorldOfGod(Luther Bible (1912))]()**
+- **[WorldOfGod(Schlachter Bibel (1951))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage12.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage13.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage14.jpg" > 
 
 # https://github.com/insaneoops288/BibleHindi
-- **[WorldOfGod()]()**
+- **[WorldOfGod(Indian Revised Version (2017 / 2018))]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage15.jpg" > 
 
 # https://github.com/insaneoops288/BibleHungarian
