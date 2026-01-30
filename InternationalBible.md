@@ -121,7 +121,7 @@
 - **[WorldOfGod(ESV)](https://www.youtube.com/watch?v=iNEKzSGUG1U&list=PLgav7xHKsaJ9CFZqCrdDZ2MAquxwQe33J&index=1)**
 - **[WorldOfGod(NewKJV)](https://www.youtube.com/watch?v=U4gTuUsNAZs&list=PLgav7xHKsaJ86ZUYSlIXl3W_v-mLnkD69&index=1)**
 - **[WorldOfGod(KJV)](https://www.youtube.com/watch?v=5UbSE4b8MjE&list=PLgav7xHKsaJ8yuU9Oh9wLNmMQ8DpyPTiJ&index=1)**
-<!--  - **[WorldOfGod(NRSV)]()** -->
+- **[WorldOfGod(NRSV)](https://www.youtube.com/watch?v=kSWJZnTHtNo&list=PLgav7xHKsaJ_ALB4-S2PqAvttlyM50God&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage37.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage38.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage39.jpg" > 
