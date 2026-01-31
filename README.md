@@ -31,6 +31,7 @@
 
 - **[성경이 말하는 하나님이 선택하신 목자란](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%B4%20%EC%84%A0%ED%83%9D%ED%95%98%EC%8B%A0%20%EB%AA%A9%EC%9E%90%EB%9E%80.md)**
 
+- **[초대교회에서의 하나님의 뜻을 따르는 하나님 아버지의 자녀들이 하나님께 찬양드리는 예배란](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%B4%88%EB%8C%80%EA%B5%90%ED%9A%8C%EC%97%90%EC%84%9C%EC%9D%98%20%ED%95%98%EB%82%98%EB%8B%98%EA%BB%98%20%EC%B0%AC%EC%96%91%EB%93%9C%EB%A6%AC%EB%8A%94%20%EC%98%88%EB%B0%B0%EB%9E%80.md)**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church04.jpg" >
