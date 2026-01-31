@@ -1,0 +1,215 @@
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church01.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church02.jpg" >
+
+# 읽어주는 하나님의 말씀 v2.006 입니다.
+
+- 당신은 하늘나라에 들어가는 길을 찾았나요? Have you found your way to heaven?
+- 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다. The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
+- 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. It is the word of the Father's devoted love for His children.
+
+하늘에 계시는 사랑하는 우리 아버지.
+아버지의 말씀인 성경을, 아버지께서 원래 의도하셨던 뜻대로 진실하게 이해할 수 있는 지혜를 저에게 주십시요. 
+아버지의 말씀을 많은 사람들에게 전해 주어서, 아버지의 은혜로 예수님을 구세주로 진실되게 믿어서 거듭납과 회계를 통해서 그들이 구원과 영원한 생명을 받고 
+예수님께서 다시 오셨을 때 아버지의 나라로 갈 수 있도록 제가 돕게 해 주십시요. 
+하지만 아버지께서 저를 도구로써 다른 뜻을 가지고 계시면 제뜻대로 하지 마시고 아버지 뜻대로 해 주십시요  저는 순종합니다.
+이 모든 말씀 살아계신 아버지의 아들이시며 구세주이신 예수님의 이름으로 기도드립니다. 아멘
+
+- **[하나님의 말씀 이미지들](https://github.com/insaneoops288/Bible/blob/main/WordOfGod.md)**
+
+- **[International성경 각 나라별 Github주소들](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
+  
+- **[성경에서 말하는 천국에 가는 방법](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%B2%9C%EA%B5%AD%EC%97%90%20%EA%B0%80%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
+- **[성경에서 말하는 진정한 회개와 거듭남이란](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%A7%84%EC%A0%95%ED%95%9C%20%ED%9A%8C%EA%B0%9C%EC%99%80%20%EA%B1%B0%EB%93%AD%EB%82%A8%EC%9D%B4%EB%9E%80.md)**
+- **[성경이 말하는 우리들이 성전인, 제사장인 이유](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%9A%B0%EB%A6%AC%EB%93%A4%EC%9D%B4%20%EC%84%B1%EC%A0%84%EC%9D%B8%2C%20%EC%A0%9C%EC%82%AC%EC%9E%A5%EC%9D%B8%20%EC%9D%B4%EC%9C%A0.md)**
+- **[성경에서 말하는 교회공동체](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EA%B5%90%ED%9A%8C%EA%B3%B5%EB%8F%99%EC%B2%B4.md)**
+- **[성경이 말하는 회당과 교회당의 차이점](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%9A%8C%EB%8B%B9%EA%B3%BC%20%EA%B5%90%ED%9A%8C%EB%8B%B9%EC%9D%98%20%EC%B0%A8%EC%9D%B4%EC%A0%90.md)**
+- **[성경에서 말하는 그의 나라와 그의 의를 구하라의 의미](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EA%B7%B8%EC%9D%98%20%EB%82%98%EB%9D%BC%EC%99%80%20%EA%B7%B8%EC%9D%98%20%EC%9D%98%EB%A5%BC%20%EA%B5%AC%ED%95%98%EB%9D%BC%EC%9D%98%20%EC%9D%98%EB%AF%B8.md)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church04.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church05.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church06.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church07.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church08.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church09.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church28.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church10.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church31.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church11.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church12.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church13.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church14.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church30.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church15.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church16.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church17.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church29.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church18.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church19.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church19a.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church20.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church21.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church22.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church23.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church24.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church25.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church26.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church27.jpg" >
+
+
+- **["읽어주는 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/Bible)**
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible016.png" >
+
+- **["International 하나님의 말씀" 깃허브 링크입니다.](https://github.com/insaneoops288/WordOfGod_Bible)**
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible017.png" > 
+
+- 한글성경 4가지, 영어성경 5가지를 챕터별로 읽어줄 수 있는 "읽어주는 하나님의 말씀"입니다. 
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
+
+- **[하나님 말씀(쉬운성경)](https://www.youtube.com/watch?v=baqNhqcH90E&list=PLgav7xHKsaJ8WWmZLC4gyLzKBQ8pwR-6Y&index=1)**
+
+- **[하나님 말씀(표준새번역 성경)](https://www.youtube.com/watch?v=-Ld3CkvLVXs&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1)**
+
+- **[하나님 말씀(우리말성경)](https://www.youtube.com/watch?v=3lrYh_ifLBY&list=PLgav7xHKsaJ-SvxVO4zDNxiF4zWtNZV8v&index=1)**
+
+- **[하나님 말씀(개역개정)](https://www.youtube.com/watch?v=He_4esriPcA&list=PLgav7xHKsaJ8pbA3Hs7XFlw-1RWiv05RE&index=1)**
+
+- **[WorldOfGod(NIV)](https://www.youtube.com/watch?v=7nEg-M2SA4o&list=PLgav7xHKsaJ-pFw6eETo4Wey8eo5pNRWZ&index=1)**
+
+- **[WorldOfGod(ESV)](https://www.youtube.com/watch?v=iNEKzSGUG1U&list=PLgav7xHKsaJ9CFZqCrdDZ2MAquxwQe33J&index=1)**
+
+- **[WorldOfGod(NewKJV)](https://www.youtube.com/watch?v=U4gTuUsNAZs&list=PLgav7xHKsaJ86ZUYSlIXl3W_v-mLnkD69&index=1)**
+
+# 은혜로운 소중한 말씀을 먼저 들어봅니다.
+
+- **[교회에 나가지 않는 것이 죄 인가요? 예수님이 교회를 세우신 놀라운 이유!](https://youtu.be/h7fRQyiUJI8)**
+
+- **[이런 신앙생활 하면 100% 천국 못 갑니다](https://youtu.be/b0J0QXnWPsc)**
+
+- **[지금껏 본 적 없는 성경 전체를 꿰뚫는, 창세기에서 요한계시록 까지 완전한 역사](https://youtu.be/x3PPJWCDTvg)**
+
+- **[성경에 행복이란 말은 없습니다](https://youtu.be/MkIwXEMpSes)**		
+
+- **[내가 구원을 받았는지 아닌지 아는 방법)](https://youtu.be/JrMHMoHlVW4)**	
+
+- **[예수님을 믿는 자만이 누릴 수 있는 7가지 기적](https://youtu.be/vZIbMUMrFZQ)**		
+
+- **[하나님은 착한 사람보다 '이런 사람'을 더 원하십니다](https://youtu.be/N7s8AgHfKj8)**		
+	
+- **[나를 힘들게 하는 사람, 하나님은 사람을 통해 나를 변화 시키십니다](https://youtu.be/MspsV9tUDak)**							
+
+- **[사랑은 모든 것을 이긴다](https://youtu.be/O5kaIpTXiWc)**		
+	
+- **[평생 기도했는데 왜 응답이 없을까? 몰랐던 기도의 비밀 5가지](https://youtu.be/v4vAlU-dZjc)**		
+
+- **[끝까지 견딘 사람에게만 주어지는 하나님의 특별한 보상](https://youtu.be/NRfwywsdhaI)**		
+
+- **[기도는 말을 잘 하는게 아닙니다.기도의 7가지 비밀](https://youtu.be/OLiOoy_h-uU)**		
+
+- **[회개할 때 반드시 붙들어야 할 '5가지 말씀](https://youtu.be/afT2K0XY6ps)**		
+
+- **[믿음으로 기도하면 반드시 회복되는 6가지](https://youtu.be/cZb0Chsb_AI)**		
+
+- **[하나님이 진정 기뻐하시는 기도는 '이런 기도' 입니다](https://youtu.be/aMSHL01XH34)**		
+
+- **[진짜 성령이란 무엇인가? 성령의 임재를 확인하는 7가지](https://youtu.be/Oru8c0T8Umk)**		
+
+- **[성령님이 가장 기뻐하시는 사람의 특징 9가지](https://youtu.be/MR_w6vFOZcc)**		
+	
+- **[성령 충만한 사람에게서 공통으로 보이는 10가지 특징](https://youtu.be/HrdrYM8u2dE)**		
+
+- **[성령님이 가장 기뻐하시는 고백 10가지](https://youtu.be/lJ-aDa3LLr0)**		
+
+- **[성경은 우리에게 행복하라고 하지 않습니다. 복음이 진짜 우리에게 주는 것 ](https://youtu.be/f7cxArDIoyU)**		
+
+
+
+- 기도는 하나님과의 대화입니다, 하나님의 자식으로써 아버지와의 대화입니다, 하나님께 순종합니다, 예수님께 순종합니다. 성령님께 순종합니다. 
+
+- 내가 너희를 사랑한 것처럼 서로 사랑해라. 너가 나를 사랑한다면 내 개명을 지킬것이다
+
+- 하늘에 계시는 하나님 아버지가 소중하며 제 모든 자랑입니다. 살아계신 하나님 아버지의 아들이시며, 구세주이신 예수님이 소중하며 제 모든 자랑입니다. 제 안에 거하시면서 저를 인도해주시고, 용기를 주시는 성령님이 소중하며 제 모든 자랑입니다. 하나님의 말씀인 성경이 소중하며 제 모든 자랑입니다. 
+
+- 제가 정말 바라는 것은 장말 많은 사람들이 예수님을 진심으로 믿어서 구원을 받고 그 분들이 하나님께 영광을 돌릴 수 있도록 제가 하나님 아버지의 도구가 되는 것입니다   아멘
+
+- 하나님을 믿고 구세주 예수님을 믿고 아버지 하나님의 도구로 일할 수 있음을 감사드립니다. 
+- 아버지 하나님과 구세주 예수님을 믿고 사랑한다면 그분들의 뜻에 따라야 합니다  그렇지 않다면 진실로 믿고 사랑하는 것이 아닙니다. 
+- 하나님의 말씀인 성경, 하나님의 은혜로 예수님을 구세주로 믿는 믿음, 거듭남과 회개, 구원과 영원한 생명, 하늘나라, 하나님께 예배드리는 교회공동체에서 주 하나님을 찬양합니다. 항상 감사드립니다. !!
+- 하나님 아버지에 대한 사랑,  구세주 예수님에 대한 사랑,   성령님에 대한 사랑,   하나님의 말씀인 성경책에 대한 사랑
+- 하나님의 아버지 말씀을 아버지가 뜻하신대로 올바르게  이해할 수 있는 지혜를 저에게 주십시요 !!  구세주 예수님의 이름으로 기도드립니다  아멘
+
+하나님의 사랑, 하나님의 은혜와 평안, 하나님의 아들, 하나님을 섬기는 성도들의 믿음, 하나님의 복음, 하나님의 교회, 하나님의 말씀, 하나님의 진리, 하나님을 섬기는 바른 길, 하나님의 말씀에 대한 갈망, 하나님을 섬기는 경건의 훈련, 하나님의 마음, 하나님의 자녀, 살아계신 하나님의 교회, 예수님의 보혈, 예수님의 희생, 예수님의 제자, 그리스도를 향한 신앙을 고백, 그리스도의 영광, 그리스도의 선한 일꾼, 믿음을 통한 구원, 영원한 생명의 약속, 영원한 생명, 하늘나라, 영원한 생명의 말씀, 영적 성장, 성도들을 섬기는 목회자, 예배하는 삶, 진실한 믿음,  참된 믿음, 생명책, 믿음의 말씀, 선한 가르침, 건강한 교회, 은혜로운 교회공동체
+
+- 여러분은, 여러분이 하나님의 성전이요 하나님의 성령이 여러분 가운데 계시다는 것을 모르십니까? 누구든지 하나님의 성전을 파괴하면, 하나님께서도 그 사람을 멸하실 것입니다. 하나님의 성전은 거룩합니다. 여러분은 하나님의 성전입니다. 고린도전서 3:16-17
+
+- 교회는 하나님의 집입니다. 하나님은 아버지이시며, 우리는 자녀로써 서로 형제자매의 관계에 서 있습니다. 가정은 피로 묶이는 것처럼, 교회는 예수 그리스도의 피로 묶인 공동체입니다. 참된 교회는 늘 말씀 앞에서 순종하며, 그 말씀을 통해 구원과 거룩함을 경험하는 공동체입니다. 주님의 말씀이시다. "나의 손이 이 모든 것을 지었으며, 이 모든 것이 나의 것이다. 겸손한 사람, 회개하는 사람, 나를 경외하고 복종하는 사람, 바로 이런 사람을 내가 좋아한다." 교회는 바로 이런 사람들이 모여 있는 곳이어야 합니다. 
+
+- 교회는 하나님께 부르심을 입은 성도들의 모임이며, 말씀과 복음의 진리를 중심으로 살아가는 공동체입니다. 하나님께서 세상에서 우리를 불러내셨고, 그 부르심에 응답한 자들이 모여 교회가 된 것입니다. 그러므로 교회는 결코 건물이 아니라 하나님의 부르심에 응답한 사람들의 공동체입니다. 교회는 그리스도의 몸입니다. 머리는 그리스도이시며, 각 지체는 서로 다른 역활을 감당하면서도 유기적으로 연결되어 있습니다. 몸의 한 부분이 아프면 온몸이 함께 아프고, 한 부분이 기뻐하면 온몸이 기뻐하는 것처럼, 교회도 각 지체가 서로 돌보고 기뻐하며 하나의 생명으로 움직입니다.
+
+- 우리들은 하늘에 계시는 하나님 아버지의 자녀들입니다. 우리들은 살아계신 하나님 아버지의 아들이시며 구세주이신 예수님의 제자들입니다. 구세주 예수님을 진실되게 믿는 우리들은 형제입니다. 형제끼리는 서로 사랑해야 합니다. 우리들 모두는 하나님의 성전이며 우리에게는 하나님이 보내주신 성령이 있습니다. 따라서 우리들은 제사장입니다.
+
+- 모든 성경 말씀은 하나님께서 감동을 주셔서 기록되었기 때문에 진리를 가르쳐 주며, 삶 가운데 무엇이 잘못되었는지 알게 해 줍니다. 또한 그 잘못을 바르게 잡아 주고 의롭게 사는 법을 가르쳐 줍니다. 말씀을 통해 하나님을 바르게 섬기는 자로 준비하게 되고, 모든 좋은 일을 할 수 있는 사람으로 자라게 됩니다. 디모데후서3:16-17
+ 
+"'네 마음을 다하고 네 목숨을 다하고, 네 뜻을 다하여, 주 너의 하나님을 사랑하여라' 하셨으니, 이것이 가장 중요하고, 으뜸 가는 계명이다. 둘째 계명도 이것과 같은데 '네 이웃을 네 몸 같이 사랑하여라' 한 것이다. 이 두 계명에 모든 율법과 예언자들의 본 뜻이 달려 있다." 마태복음 22:37-40
+
+"나더러 '주님, 주님' 하는 사람이라고 해서 다 하늘 나라에 들어가는 것이 아니다. 하늘에 계신 내 아버지의 뜻을 행하는 사람이라야 들어간다. " 그 날에 많은 사람이 나에게 말하기를 '주님, 주님, 우리가 주님의 이름으로 예언을 하고, 주님의 이름으로 귀신을 내쫓고, 또 주님의 이름으로 많은 기적을 행하지 않았습니까?' 할 것이다. 그 때에 내가 그들에게 밝히 말할 것이다. '나는 너희를 도무지 알지 못한다. 불법을 행하는 자들아, 나에게서 물러가라.'" 마태복음 7:21-23
+
+"너희가 나를 사랑하면, 내 계명을 지킬 것이다. 요한복음 14:15
+
+하나님이 세상을 이처럼 사랑하셔서 독생자를 주셨으니, 누구든지 그를 믿으면 멸망하지 않고 영생을 얻을 것이다. 요한복음 3:16
+
+"나는 부활이요 생명이니, 나를 믿는 사람은 죽어도 살고, 살아서 나를 믿는 사람은 영원히 죽지 않을 것이다." 요한복음 11:25-26
+
+나를 보내신 분의 뜻은, 내게 주신 사람을 내가 하나도 잃어버리지 않고, 마지막 날에 모두 살리는 일이다. 또한 아들을 보고 그를 믿는 사람이면 누구나 영원한 생명을 얻게 하시는 것이 내 아버지의 뜻이다. 나는 마지막 날에 그들을 다시 살릴 것이다." 요한복음 6:39-40
+
+아버지께서는 아들에게 주신 모든 사람에게 영생을 주게 하시려고, 모든 사람을 다스리는 권세를 아들에게 주셨습니다. 영생은 오직 한 분이신 참 하나님을 알고 또 아버지께서 보내신 예수 그리스도를 아는 것입니다. 요한복음 17:2-3
+
+여러분은 믿음으로 말미암아 은혜로 구원을 받았습니다. 이것은, 여러분에게서 난 것이 아니요, 하나님의 선물입니다. 구원이 행위에서 난 것이 아님은, 아무도 그것을 자랑할 수 없게 하려고 하시는 것입니다. 에베소서 2:8-9
+
+하나님의 의는 예수 그리스도를 믿는 믿음을 통하여 모든 믿는 사람에게 옵니다. 거기에는 아무 차별도 없습니다. 모든 사람이 죄를 범하였으므로, 하나님의 영광에 이르지 못합니다. 그러나 사람은, 그리스도 예수 안에 있는 속량을 힘입어서, 하나님의 은혜로 값없이 의롭게 하여 주심을 받습니다. 하나님께서 이 예수를 사람에게 속죄제물로 주셨습니다. 누구든지 그 피를 믿으면 속죄함을 받습니다. 하나님께서 이렇게 하신 것은, 사람들이 이제까지 지은 죄를 너그럽게 보아 주심으로 자기의 의를 나타내시려는 것입니다. 하나님께서 길이 참으시는 가운데, 지금 이 때에 자기의 의를 나타내신 것은, 하나님께서는 의로우신 분이시라는 것과 예수를 믿는 사람은 누구나 의롭게 하여 주신다는 것을 나타내시려는 것입니다. 로마서 3:22-26
+
+그러므로 믿음, 소망, 사랑, 이 세 가지는 항상 있을 것인데, 그 가운데서 으뜸은 사랑입니다. 고린도전서 13:13
+
+"남을 심판하지 말아라. 그러면 하나님께서도 너희를 심판하지 않으실 것이다. 남을 정죄하지 말아라. 그러면 하나님께서도 너희를 정죄하지 않으실 것이다. 남을 용서하여라. 그러면 하나님께서도 너희를 용서하실 것이다. 누가복음 6:37
+
+형제자매 여러분, 그러므로 나는 하나님의 자비하심을 힘입어 여러분에게 권합니다. 여러분은 여러분의 몸을 하나님께서 기뻐하실 거룩한 산 제물로 드리십시오. 이것이 여러분이 드릴 합당한 예배입니다.  로마서 12:1
+
+- **[깃허브에서 읽어주는 성경을 설치하는 방법입니다. 종전에 이미 읽어주는 성경이 설치되어 있다면 압축파일을 다운으로 받아서 종전에 폴더에 덮어쓰기 하시면 됩니다.](https://youtu.be/RBitCWxFkRY)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible015.png" > 
+
+- **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 5가지를 선택해서 읽어줄 수 있습니다.](https://youtu.be/SkT-nuRFXGQ)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="300"> 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
+
+- **[선택된 성경의 각 장들을 선택할 수 있습니다.](https://youtu.be/y65fb2ZYDG8)**
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
+
+- **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://youtu.be/SkT-nuRFXGQ)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible014.png" width="300"> 
+
+- **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.](https://www.youtube.com/watch?v=OTZHtN0YqTI)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
+
+- **[선택한 성경에서 특정 단어로 검색이 가능합니다.](https://www.youtube.com/watch?v=rwGmyHYcX10)**
+
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
+
+- **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.](https://www.youtube.com/watch?v=RtIdi5DzV7k)**
+  
+<img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
+
+- 하나님 아버지의 말씀인 성경을, 아버지께서 원래 의도하셨던 뜻대로 진실하고 올바르게 이해할 수 있는 지혜를 저에게 주십시요. 아버지의 말씀은 진리이며, 영원한 생명의 말씀입니다.
+
+- 아버지의 말씀을 많은 사람들, 많은 나라에 전해 주어서, 아버지의 은혜로 예수님을 구세주로 진실되게 믿고, 거듭남과 회계를 통해서 그들이 구원과 영원한 생명을 받고 예수님께서 이 땅에 다시 오셨을 때 아버지의 나라로 갈 수 있도록 제가 돕게 해 주십시요. 
+
+- 하지만 아버지께서 저를 도구로써 다른 뜻을 가지고 계시면 제뜻대로 하지 마시고 아버지 뜻대로 해 주십시요  저는 순종합니다. 
+
+- 이 모든 말씀 살아계신 아버지의 아들이시며 구세주이신 예수님의 이름으로 기도드립니다. 아멘. !!
+
+
