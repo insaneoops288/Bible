@@ -27,6 +27,11 @@
 - **[성경이 말하는 회당과 교회당의 차이점](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%9A%8C%EB%8B%B9%EA%B3%BC%20%EA%B5%90%ED%9A%8C%EB%8B%B9%EC%9D%98%20%EC%B0%A8%EC%9D%B4%EC%A0%90.md)**
 - **[성경에서 말하는 그의 나라와 그의 의를 구하라의 의미](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EA%B7%B8%EC%9D%98%20%EB%82%98%EB%9D%BC%EC%99%80%20%EA%B7%B8%EC%9D%98%20%EC%9D%98%EB%A5%BC%20%EA%B5%AC%ED%95%98%EB%9D%BC%EC%9D%98%20%EC%9D%98%EB%AF%B8.md)**
 
+- **[하나님 아버지의 자녀, 살아계신 하나님의 아들이시며 구세주이신 예수님, 하나님 나라의 백성이 되기 위한](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%ED%95%98%EB%82%98%EB%8B%98%20%EC%95%84%EB%B2%84%EC%A7%80%EC%9D%98%20%EC%9E%90%EB%85%80%2C%20%EC%82%B4%EC%95%84%EA%B3%84%EC%8B%A0%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EC%95%84%EB%93%A4%EC%9D%B4%EC%8B%9C%EB%A9%B0%20%EA%B5%AC%EC%84%B8%EC%A3%BC%EC%9D%B4%EC%8B%A0%20%EC%98%88%EC%88%98%EB%8B%98%2C%20%ED%95%98%EB%82%98%EB%8B%98%20%EB%82%98%EB%9D%BC%EC%9D%98%20%EB%B0%B1%EC%84%B1%EC%9D%B4%20%EB%90%98%EA%B8%B0%20%EC%9C%84%ED%95%9C.md)**
+
+- **[성경이 말하는 하나님이 선택하신 목자란](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%B4%20%EC%84%A0%ED%83%9D%ED%95%98%EC%8B%A0%20%EB%AA%A9%EC%9E%90%EB%9E%80.md)**
+
+
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church04.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church05.jpg" >
