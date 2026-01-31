@@ -3,8 +3,8 @@
 
 # 읽어주는 하나님의 말씀 v2.006 입니다.
 
-- 당신은 하늘나라에 들어가는 길을 찾았나요?Have you found your way to heaven?
-- 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
+- 당신은 하늘나라에 들어가는 길을 찾았나요? Have you found your way to heaven?
+- 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다. The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
 - 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. It is the word of the Father's devoted love for His children.
 
 하늘에 계시는 사랑하는 우리 아버지.
@@ -16,7 +16,8 @@
 
 - **[하나님의 말씀 이미지들](https://github.com/insaneoops288/Bible/blob/main/WordOfGod.md)**
 
-- **[InternationalBible](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
+- **[International성경 각 나라별 Github주소들](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
+  
 - **[성경에서 말하는 천국에 가는 방법](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%B2%9C%EA%B5%AD%EC%97%90%20%EA%B0%80%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
 - **[성경에서 말하는 진정한 회개와 거듭남이란](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%A7%84%EC%A0%95%ED%95%9C%20%ED%9A%8C%EA%B0%9C%EC%99%80%20%EA%B1%B0%EB%93%AD%EB%82%A8%EC%9D%B4%EB%9E%80.md)**
 - **[성경이 말하는 우리들이 성전인, 제사장인 이유](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%9A%B0%EB%A6%AC%EB%93%A4%EC%9D%B4%20%EC%84%B1%EC%A0%84%EC%9D%B8%2C%20%EC%A0%9C%EC%82%AC%EC%9E%A5%EC%9D%B8%20%EC%9D%B4%EC%9C%A0.md)**
