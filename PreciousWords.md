@@ -1,28 +1,28 @@
-- **[01. 쉬운성경(NIV) 마태복음(Matthew)]()**
-- **[02. 쉬운성경(NIV) 마가복음(Mark)]()**
-- **[03. 쉬운성경(NIV) 누가복음(Luke)]()**
-- **[04. 쉬운성경(NIV) 요한복음(John)]()**
-- **[05. 쉬운성경(NIV) 사도행전(Acts)]()**
-- **[06. 쉬운성경(NIV) 로마서(Romans)]()**
-- **[07. 쉬운성경(NIV) 고린도전서(1 Corinthians)]()**
-- **[08. 쉬운성경(NIV) 고린도후서(2 Corinthians)]()**
-- **[09. 쉬운성경(NIV) 갈라디아서(Galatians)]()**
-- **[10. 쉬운성경(NIV) 에베소서(Ephesians)]()**
-- **[11. 쉬운성경(NIV) 빌립보서(Philippians)]()**
-- **[12. 쉬운성경(NIV) 골로새서(Colossians)]()**
-- **[13. 쉬운성경(NIV) 데살로니가전서(1 Thessalonians)]()**
-- **[14. 쉬운성경(NIV) 데살로니가후서(2 Thessalonians)]()**
-- **[15. 쉬운성경(NIV) 디모데전서(1 Timothy)]()**
-- **[16. 쉬운성경(NIV) 디모데후서(2 Timothy)]()**
-- **[17. 쉬운성경(NIV) 디도서(Titus )]()**
-- **[18. 쉬운성경(NIV) 빌레몬서(Philemon)]()**
-- **[19. 쉬운성경(NIV) 히브리서(Hebrews)]()**
-- **[20. 쉬운성경(NIV) 야고보서(James)]()**
-- **[21. 쉬운성경(NIV) 베드로전서(1 Peter)]()**
-- **[22. 쉬운성경(NIV) 베드로후서(2 Peter)]()**
-- **[23. 쉬운성경(NIV) 요한일서(1 John)]()**
-- **[24 쉬운성경(NIV) 요한이서(2 John).md]()**
-- **[25. 쉬운성경(NIV) 요한삼서(3 John).md]()**
-- **[26. 쉬운성경(NIV) 유다서(Jude).md]()**
+- **[01. 쉬운성경(NIV) 마태복음(Matthew)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/01.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%A7%88%ED%83%9C%EB%B3%B5%EC%9D%8C(Matthew).md)**
+- **[02. 쉬운성경(NIV) 마가복음(Mark)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/02.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%A7%88%EA%B0%80%EB%B3%B5%EC%9D%8C(Mark).md)**
+- **[03. 쉬운성경(NIV) 누가복음(Luke)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/03.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%88%84%EA%B0%80%EB%B3%B5%EC%9D%8C(Luke).md)**
+- **[04. 쉬운성경(NIV) 요한복음(John)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/04.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%9A%94%ED%95%9C%EB%B3%B5%EC%9D%8C(John).md)**
+- **[05. 쉬운성경(NIV) 사도행전(Acts)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/05.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%82%AC%EB%8F%84%ED%96%89%EC%A0%84(Acts).md)**
+- **[06. 쉬운성경(NIV) 로마서(Romans)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/06.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%A1%9C%EB%A7%88%EC%84%9C(Romans).md)**
+- **[07. 쉬운성경(NIV) 고린도전서(1 Corinthians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/07.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EA%B3%A0%EB%A6%B0%EB%8F%84%EC%A0%84%EC%84%9C(1%20Corinthians).md)**
+- **[08. 쉬운성경(NIV) 고린도후서(2 Corinthians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/08.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EA%B3%A0%EB%A6%B0%EB%8F%84%ED%9B%84%EC%84%9C(2%20Corinthians).md)**
+- **[09. 쉬운성경(NIV) 갈라디아서(Galatians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/09.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EA%B0%88%EB%9D%BC%EB%94%94%EC%95%84%EC%84%9C(Galatians).md)**
+- **[10. 쉬운성경(NIV) 에베소서(Ephesians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/10.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%97%90%EB%B2%A0%EC%86%8C%EC%84%9C(Ephesians).md)**
+- **[11. 쉬운성경(NIV) 빌립보서(Philippians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/11.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%B9%8C%EB%A6%BD%EB%B3%B4%EC%84%9C(Philippians)..md)**
+- **[12. 쉬운성경(NIV) 골로새서(Colossians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/12.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EA%B3%A8%EB%A1%9C%EC%83%88%EC%84%9C(Colossians).md)**
+- **[13. 쉬운성경(NIV) 데살로니가전서(1 Thessalonians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/13.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%8D%B0%EC%82%B4%EB%A1%9C%EB%8B%88%EA%B0%80%EC%A0%84%EC%84%9C(1%20Thessalonians).md)**
+- **[14. 쉬운성경(NIV) 데살로니가후서(2 Thessalonians)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/14.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%8D%B0%EC%82%B4%EB%A1%9C%EB%8B%88%EA%B0%80%ED%9B%84%EC%84%9C(2%20Thessalonians).md)**
+- **[15. 쉬운성경(NIV) 디모데전서(1 Timothy)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/15.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%94%94%EB%AA%A8%EB%8D%B0%EC%A0%84%EC%84%9C(1%20Timothy).md)**
+- **[16. 쉬운성경(NIV) 디모데후서(2 Timothy)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/16.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%94%94%EB%AA%A8%EB%8D%B0%ED%9B%84%EC%84%9C(2%20Timothy).md)**
+- **[17. 쉬운성경(NIV) 디도서(Titus )](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/17.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%94%94%EB%8F%84%EC%84%9C(Titus%20).md)**
+- **[18. 쉬운성경(NIV) 빌레몬서(Philemon)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/18.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%B9%8C%EB%A0%88%EB%AA%AC%EC%84%9C(Philemon).md)**
+- **[19. 쉬운성경(NIV) 히브리서(Hebrews)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/19.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%ED%9E%88%EB%B8%8C%EB%A6%AC%EC%84%9C(Hebrews).md)**
+- **[20. 쉬운성경(NIV) 야고보서(James)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/20.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%95%BC%EA%B3%A0%EB%B3%B4%EC%84%9C(James).md)**
+- **[21. 쉬운성경(NIV) 베드로전서(1 Peter)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/21.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%B2%A0%EB%93%9C%EB%A1%9C%EC%A0%84%EC%84%9C(1%20Peter).md)**
+- **[22. 쉬운성경(NIV) 베드로후서(2 Peter)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/22.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EB%B2%A0%EB%93%9C%EB%A1%9C%ED%9B%84%EC%84%9C(2%20Peter).md)**
+- **[23. 쉬운성경(NIV) 요한일서(1 John)](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/23.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%9A%94%ED%95%9C%EC%9D%BC%EC%84%9C(1%20John).md)**
+- **[24 쉬운성경(NIV) 요한이서(2 John).md](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/24%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%9A%94%ED%95%9C%EC%9D%B4%EC%84%9C(2%20John).md)**
+- **[25. 쉬운성경(NIV) 요한삼서(3 John).md](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/25.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%9A%94%ED%95%9C%EC%82%BC%EC%84%9C(3%20John).md)**
+- **[26. 쉬운성경(NIV) 유다서(Jude).md](https://github.com/insaneoops288/Bible/blob/main/%EC%86%8C%EC%A4%91%ED%95%9C%20%EB%A7%90%EC%94%80/26.%20%EC%89%AC%EC%9A%B4%EC%84%B1%EA%B2%BD(NIV)%20%EC%9C%A0%EB%8B%A4%EC%84%9C(Jude).md)**
 
 
