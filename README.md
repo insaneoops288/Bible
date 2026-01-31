@@ -81,6 +81,8 @@
 
 - **[WorldOfGod(NewKJV)](https://www.youtube.com/watch?v=U4gTuUsNAZs&list=PLgav7xHKsaJ86ZUYSlIXl3W_v-mLnkD69&index=1)**
 
+- **[WorldOfGod(NRSV)](https://www.youtube.com/watch?v=kSWJZnTHtNo&list=PLgav7xHKsaJ_ALB4-S2PqAvttlyM50God&index=1)**
+
 # 은혜로운 소중한 말씀을 먼저 들어봅니다.
 
 - **[교회에 나가지 않는 것이 죄 인가요? 예수님이 교회를 세우신 놀라운 이유!](https://youtu.be/h7fRQyiUJI8)**
