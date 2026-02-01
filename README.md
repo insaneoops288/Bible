@@ -18,7 +18,7 @@
 
 - **[International성경 각 나라별 Github주소들](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
 
-- **[소중한 말씀](https://github.com/insaneoops288/Bible/blob/main/PreciousWords.md)**
+- **[소중한 말씀 : 성경 문장들](https://github.com/insaneoops288/Bible/blob/main/PreciousWords.md)**
 
 - **[성경이 말하는 하늘에 계시는 아버지의 뜻을 행하는 방법](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%8A%98%EC%97%90%20%EA%B3%84%EC%8B%9C%EB%8A%94%20%EC%95%84%EB%B2%84%EC%A7%80%EC%9D%98%20%EB%9C%BB%EC%9D%84%20%ED%96%89%ED%95%98%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
 
