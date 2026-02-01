@@ -22,6 +22,8 @@
 
 - **[성경이 말하는 하늘에 계시는 아버지의 뜻을 행하는 방법](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%8A%98%EC%97%90%20%EA%B3%84%EC%8B%9C%EB%8A%94%20%EC%95%84%EB%B2%84%EC%A7%80%EC%9D%98%20%EB%9C%BB%EC%9D%84%20%ED%96%89%ED%95%98%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
 
+- **[예수님을 통하지 않고 성도가 직접 하나님과 대화할 수 있는가](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%98%88%EC%88%98%EB%8B%98%EC%9D%84%20%ED%86%B5%ED%95%98%EC%A7%80%20%EC%95%8A%EA%B3%A0%20%EC%84%B1%EB%8F%84%EA%B0%80%20%EC%A7%81%EC%A0%91%20%ED%95%98%EB%82%98%EB%8B%98%EA%B3%BC%20%EB%8C%80%ED%99%94%ED%95%A0%20%EC%88%98%20%EC%9E%88%EB%8A%94%EA%B0%80.md)**
+
 - **[당신은 하늘나라에 들어가는 길을 찾았나요](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EB%8B%B9%EC%8B%A0%EC%9D%80%20%ED%95%98%EB%8A%98%EB%82%98%EB%9D%BC%EC%97%90%20%EB%93%A4%EC%96%B4%EA%B0%80%EB%8A%94%20%EA%B8%B8%EC%9D%84%20%EC%B0%BE%EC%95%98%EB%82%98%EC%9A%94.md)**
     
 - **[성경에서 말하는 천국에 가는 방법](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%B2%9C%EA%B5%AD%EC%97%90%20%EA%B0%80%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
