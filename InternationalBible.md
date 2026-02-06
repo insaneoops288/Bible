@@ -1,11 +1,11 @@
 <!-- -->
 
 # https://github.com/insaneoops288/BibleAfrikaans
-# **[WorldOfGod(Afrikaans 1953)](https://www.youtube.com/watch?v=2pLJ2GjQsoY&list=PLgav7xHKsaJ9u2PEJaHAL2klSRdISIV8V&index=1)**
+### **[WorldOfGod(Afrikaans 1953)](https://www.youtube.com/watch?v=2pLJ2GjQsoY&list=PLgav7xHKsaJ9u2PEJaHAL2klSRdISIV8V&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage01.jpg" > 
 
 # https://github.com/insaneoops288/BibleAlbanian
-# **[WorldOfGod(Albanian)](https://www.youtube.com/watch?v=SRETVCMhwf0&list=PLgav7xHKsaJ-GJCLiJejZv-w1zbJAbxBr&index=1)**
+### **[WorldOfGod(Albanian)](https://www.youtube.com/watch?v=SRETVCMhwf0&list=PLgav7xHKsaJ-GJCLiJejZv-w1zbJAbxBr&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 # https://github.com/insaneoops288/BibleChinese
