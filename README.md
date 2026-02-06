@@ -83,7 +83,7 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/BibleMain.png" > 
 
-- **[하나님 말씀(쉬운성경)](https://www.youtube.com/watch?v=baqNhqcH90E&list=PLgav7xHKsaJ8WWmZLC4gyLzKBQ8pwR-6Y&index=1)**
+- **[하나님 말씀(쉬운성경)](https://www.youtube.com/watch?v=U_mG4BbN1PA&list=PLgav7xHKsaJ8WWmZLC4gyLzKBQ8pwR-6Y&index=1)**
 
 - **[하나님 말씀(표준새번역 성경)](https://www.youtube.com/watch?v=-Ld3CkvLVXs&list=PLgav7xHKsaJ9BFfDvzsFN3VSwI67h_af_&index=1)**
 
