@@ -57,7 +57,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage18.jpg" > 
 
 # https://github.com/insaneoops288/BibleItalian
-<!--  - **[WorldOfGod(Diodati (1649))]()** -->
+### **[WorldOfGod(Diodati (1649))](https://www.youtube.com/watch?v=rpHRzl92xfE&list=PLgav7xHKsaJ-kK1txhkcmPifhk86MlNqo&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage19.jpg" > 
 
 # https://github.com/insaneoops288/BibleJapanese
