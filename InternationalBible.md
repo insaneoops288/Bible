@@ -101,15 +101,15 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage33.jpg" > 
 
 # https://github.com/insaneoops288/BibleTagalog
-<!--  - **[WorldOfGod(Tagalog Ang Biblia (1905))]()** -->
+### **[WorldOfGod(Tagalog Ang Biblia (1905))](https://www.youtube.com/watch?v=3dyltjyQBmE&list=PLgav7xHKsaJ_93_RioH6loVESm8DpQB1k&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage34.jpg" > 
 
 # https://github.com/insaneoops288/BibleThai
-<!--  - **[WorldOfGod(Thai KJV)]()** -->
+### **[WorldOfGod(Thai KJV)](https://www.youtube.com/watch?v=U5FHNeDAvk8&list=PLgav7xHKsaJ9Vyry9xfJ-V8XxoyPlZ6Cr&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage35.jpg" > 
 
 # https://github.com/insaneoops288/BibleVietnamese
-<!--  - **[WorldOfGod(Vietnamese Cadman (1934))]()** -->
+### **[WorldOfGod(Vietnamese Cadman (1934))](https://www.youtube.com/watch?v=V8foRCAnt14&list=PLgav7xHKsaJ9LjgN8aAGa2GUSQWbjtZG9&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage36.jpg" > 
 
 # https://github.com/insaneoops288/Bible
