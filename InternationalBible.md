@@ -67,34 +67,34 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage21.jpg" > 
 
 # https://github.com/insaneoops288/BiblePolish
-<!-- - **[WorldOfGod(NOWEJ BIBLII GDANSKIEJ (2012))]()** -->
-<!-- - **[WorldOfGod(Uwspółcześniona Biblia Gdańska (2017))]()** -->
-<!-- - **[WorldOfGod(Polska Biblia Gdanska (1881))]()** -->
+### **[WorldOfGod(NOWEJ BIBLII GDANSKIEJ (2012))](https://www.youtube.com/watch?v=Ld3CvAtSNZk&list=PLgav7xHKsaJ--aL2Y2ORpwh6JfVkszDAa&index=1)**
+### **[WorldOfGod(Uwspółcześniona Biblia Gdańska (2017))](https://www.youtube.com/watch?v=k9_JYhiueqA&list=PLgav7xHKsaJ_9x3cEIGc5mbmLrhHKleEx&index=1)**
+### **[WorldOfGod(Polska Biblia Gdanska (1881))](https://www.youtube.com/watch?v=SW7WSVFZikI&list=PLgav7xHKsaJ9RvTjA3Dt-gLmrxsMOPV0g&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage22.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage23.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage24.jpg" > 
 
 # https://github.com/insaneoops288/BiblePortuguese
-<!--  - **[WorldOfGod(radução de João Ferreira de Almeida)]()** -->
-<!--  - **[WorldOfGod(Tradução de João Ferreira de Almeida Revista e Corrigid)]()** -->
-<!--  - **[WorldOfGod(Biblia Livre)]()** -->
+### **[WorldOfGod(radução de João Ferreira de Almeida)](https://www.youtube.com/watch?v=2-4BbSjJIRk&list=PLgav7xHKsaJ8gX5tcKPimrGdHsAdXLNdZ&index=1)**
+### **[WorldOfGod(Tradução de João Ferreira de Almeida Revista e Corrigid)](https://www.youtube.com/watch?v=yhXBJek3iEs&list=PLgav7xHKsaJ838Ev_LZ1bjaJ-D4G8lHZz&index=1)**
+### **[WorldOfGod(Biblia Livre)](https://www.youtube.com/watch?v=k9_JYhiueqA&t=4s)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage25.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage26.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage27.jpg" > 
 
 # https://github.com/insaneoops288/BibleRomanian
-<!--  - **[WorldOfGod(Fidela Biblia în limba română (2011-2016))]()** -->
+### **[WorldOfGod(Fidela Biblia în limba română (2011-2016))](https://www.youtube.com/watch?v=8rBujxuoRrg&list=PLgav7xHKsaJ859_De5Lylx8L7HtqYVIaB&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage28.jpg" > 
 
 # https://github.com/insaneoops288/BibleRussian
-<!--  - **[WorldOfGod(Synodal (1876))]()** -->
+### **[WorldOfGod(Synodal (1876))](https://www.youtube.com/watch?v=tRWRxE98GZc&list=PLgav7xHKsaJ9_7jKRbCxwP82uqTYpZhZD&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage29.jpg" > 
 
 # https://github.com/insaneoops288/BibleSpanish
-<!--  - **[WorldOfGod(Reina Valera 1909)]()** -->
-<!-- - **[WorldOfGod(Valera Gómez (2010))]()** -->
-<!-- - **[WorldOfGod(Reina Valera Gómez (2004))]()** -->
-<!-- - **[WorldOfGod(Sagradas Escrituras (1569))]()** -->
+### **[WorldOfGod(Reina Valera 1909)](https://www.youtube.com/watch?v=tZWIp4Y9_k0&list=PLgav7xHKsaJ81SYJ2z10iehX28N4bPZ8N&index=1)**
+### **[WorldOfGod(Valera Gómez (2010))](https://www.youtube.com/watch?v=LO0QqOkDlbQ&list=PLgav7xHKsaJ8IzL_yO5Of0Q1MCgzqVRZC&index=1)**
+### **[WorldOfGod(Reina Valera Gómez (2004))](https://www.youtube.com/watch?v=q7rRenIjaY8&list=PLgav7xHKsaJ-fiCgAZEXtXsfyf8pDHIE_&index=1)**
+### **[WorldOfGod(Sagradas Escrituras (1569))](https://www.youtube.com/watch?v=cnyLtYRvWZM&list=PLgav7xHKsaJ9RcTtgboqCGDENv2xyeJpb&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage30.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage31.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage32.jpg" > 
