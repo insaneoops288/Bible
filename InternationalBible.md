@@ -9,10 +9,10 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 # https://github.com/insaneoops288/BibleChinese
-<!--  - **[WorldOfGod(Chinese Union (Simplified))]()** -->
-<!--  - **[WorldOfGod(Chinese Union (Traditional))]()** -->
-<!--  - **[WorldOfGod(Chinese KJV (Simplified))]()** -->
-<!--  - **[WorldOfGod(Chinese KJV (Traditional))]()** -->
+### **[WorldOfGod(Chinese Union (Simplified))](https://www.youtube.com/watch?v=WGr_9o7y8A8&list=PLgav7xHKsaJ_Vj3L0SZrckhzg_oExUeqx&index=1)**
+### **[WorldOfGod(Chinese Union (Traditional))](https://www.youtube.com/watch?v=PNObfmfwMUA&list=PLgav7xHKsaJ_uY8119XPF5iI5p7nTsMUT&index=1)**
+### **[WorldOfGod(Chinese KJV (Simplified))](https://www.youtube.com/watch?v=qTCE7nqvYok&list=PLgav7xHKsaJ-1vyevMZ95hluJriQ0OB2V&index=1)**
+### **[WorldOfGod(Chinese KJV (Traditional))](https://www.youtube.com/watch?v=4NcfcY7AogI&list=PLgav7xHKsaJ8PjEMu8W3J6uJ12LckF9sR&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage03.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage04.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage05.jpg" > 
