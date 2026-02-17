@@ -7,18 +7,18 @@
 - 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다. The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
 - 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. It is the word of the Father's devoted love for His children.
 
+- **[하나님의 말씀 이미지들입니다.](https://github.com/insaneoops288/Bible/blob/main/WordOfGod.md)**
+
+- **[International성경 각 나라별 Github주소들입니다.](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
+
+- **[소중한 말씀 : 성경 문장들입니다.](https://github.com/insaneoops288/Bible/blob/main/PreciousWords.md)**
+
 하늘에 계시는 사랑하는 우리 아버지.
 아버지의 말씀인 성경을, 아버지께서 원래 의도하셨던 뜻대로 진실하게 이해할 수 있는 지혜를 저에게 주십시요. 
 아버지의 말씀을 많은 사람들에게 전해 주어서, 아버지의 은혜로 예수님을 구세주로 진실되게 믿어서 거듭납과 회계를 통해서 그들이 구원과 영원한 생명을 받고 
 예수님께서 다시 오셨을 때 아버지의 나라로 갈 수 있도록 제가 돕게 해 주십시요. 
 하지만 아버지께서 저를 도구로써 다른 뜻을 가지고 계시면 제뜻대로 하지 마시고 아버지 뜻대로 해 주십시요  저는 순종합니다.
 이 모든 말씀 살아계신 아버지의 아들이시며 구세주이신 예수님의 이름으로 기도드립니다. 아멘
-
-- **[하나님의 말씀 이미지들입니다.](https://github.com/insaneoops288/Bible/blob/main/WordOfGod.md)**
-
-- **[International성경 각 나라별 Github주소들입니다.](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
-
-- **[소중한 말씀 : 성경 문장들입니다.](https://github.com/insaneoops288/Bible/blob/main/PreciousWords.md)**
 
 - **[성경이 말하는 하늘에 계시는 아버지의 뜻을 행하는 방법입니다.](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%8A%98%EC%97%90%20%EA%B3%84%EC%8B%9C%EB%8A%94%20%EC%95%84%EB%B2%84%EC%A7%80%EC%9D%98%20%EB%9C%BB%EC%9D%84%20%ED%96%89%ED%95%98%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
 
