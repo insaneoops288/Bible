@@ -48,6 +48,7 @@
 
 - **[우리에게 지도자는 예수님 한분 뿐이며 우리들은 모두 형제이며 자매이다](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%9A%B0%EB%A6%AC%EC%97%90%EA%B2%8C%20%EC%A7%80%EB%8F%84%EC%9E%90%EB%8A%94%20%EC%98%88%EC%88%98%EB%8B%98%20%ED%95%9C%EB%B6%84%20%EB%BF%90%EC%9D%B4%EB%A9%B0%20%EC%9A%B0%EB%A6%AC%EB%93%A4%EC%9D%80%20%EB%AA%A8%EB%91%90%20%ED%98%95%EC%A0%9C%EC%9D%B4%EB%A9%B0%20%EC%9E%90%EB%A7%A4%EC%9D%B4%EB%8B%A4..md)**
 
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church99.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church03.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church04.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church05.jpg" >
