@@ -1,7 +1,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church01.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church02.jpg" >
 
-# 읽어주는 하나님의 말씀 v2.007 입니다.
+# 읽어주는 하나님의 말씀 v2.1000입니다.
 
 - 당신은 하늘나라에 들어가는 길을 찾았나요? Have you found your way to heaven?
 - 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다. The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
