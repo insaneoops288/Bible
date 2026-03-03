@@ -51,6 +51,7 @@
 - **[성경에서 말하는 목자와 청지기의 의미와 역할](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EB%AA%A9%EC%9E%90%EC%99%80%20%EC%B2%AD%EC%A7%80%EA%B8%B0%EC%9D%98%20%EC%9D%98%EB%AF%B8%EC%99%80%20%EC%97%AD%ED%95%A0.md)**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church103.jpg" >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church104.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church99.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church101.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church102.jpg" >
