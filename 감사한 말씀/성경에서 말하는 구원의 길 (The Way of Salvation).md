@@ -24,7 +24,8 @@
 
 * **요한복음(요) 3장 16절**: 이와 같이 하나님께서는 세상을 사랑하여 독생자를 주셨다. 이는 누구든지 그의 아들을 믿는 사람은 멸망하지 않고 영생을 얻게 하려 하심이다. 
 * **John(John) 3:16**: "For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life. 
-* **로마서 5:8**: "우리가 아직 죄인 되었을 때에 그리스도께서 우리를 위하여 죽으심으로 하나님께서 우리에 대한 자기의 사랑을 확증하셨느니라"  
+* **로마서(롬) 5장 8절**: 그런데 그리스도께서는 우리가 아직 죄인이었을 때에 우리를 위해 죽으셨습니다. 이것으로써 하나님께서는 우리를 향한 그분의 사랑을 나타내셨습니다. 
+* **Romans(Rom) 5:8**: But God demonstrates his own love for us in this, While we were still sinners, Christ died for us. 
 * **설명**: 죄가 없으신 예수 그리스도께서 우리 대신 십자가에서 형벌을 받으시고 부활하심으로 구원의 길을 완성하셨습니다.
 
 ## **4\. 구원의 방법: 오직 믿음과 은혜**
