@@ -58,7 +58,16 @@
 "그런즉 누구든지 그리스도 안에 있으면 새로운 피조물이라 이전 것은 지나갔으니 보라 새 것이 되었도다" (고린도후서 5:17)
 
 * **고린도후서(고후) 5장 17절**: 그러므로 누구든지 그리스도 안에 있으면 새로운 창조입니다. 이전 것들은 지나갔고, 보십시오, 새 것들이 와 있습니다. 
-* **2 Corinthians(2Cor) 5:17**: Therefore, if anyone is in Christ, he is a new creation, the old has gone, the new has come! 
+* **2 Corinthians(2Cor) 5:17**: Therefore, if anyone is in Christ, he is a new creation, the old has gone, the new has come!
+
+* **로마서(롬) 8장 15절**: 여러분이 받은 성령은 여러분을 다시 두려움에 이르게 하는, 노예로 만드는 영이 아니라 여러분을 하나님의 자녀가 되게 하는 영이십니다. 그래서 우리는 그 성령을 의지하여 “아바, 아버지”라고 부를 수 있는 것입니다. 
+* **Romans(Rom) 8:15**: For you did not receive a spirit that makes you a slave again to fear, but you received the Spirit of sonship. And by him we cry, "Abba, Father."
+
+* **갈라디아서(갈) 5장 22절**: 그러나 성령의 열매는 사랑과 기쁨과 평화와 오래 참음과 자비와 착함과 성실과
+* **Galatians(Gal) 5:22**: But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, 
+
+* **갈라디아서(갈) 5장 23절**: 온유와 절제입니다. 이런 것들을 금지할 율법이 없습니다. 
+* **Galatians(Gal) 5:23**: gentleness and self-control. Against such things there is no law.
 
 1. **가치관의 변화:** 세상적인 욕망보다 하나님의 뜻과 영광을 구하는 마음이 생깁니다.  
 2. **죄에 대한 태도:** 전에는 즐기던 죄가 싫어지고, 하나님 보시기에 거룩한 삶을 살고자 하는 열망이 생깁니다.  
@@ -68,6 +77,9 @@
 ## **4\. 거듭남의 도구: 하나님의 말씀과 믿음**
 
 어떻게 거듭날 수 있는가에 대해 성경은 '말씀'과 '믿음'을 강조합니다.
+
+* **베드로전서(벧전) 1장 23절**: 여러분은 다시 태어났습니다. 이 새 생명은 죽어 없어질 것으로부터 난 것이 아니라 결코 죽지 않는 것으로부터 생긴 것입니다. 여러분이 다시 태어난 것은 영원한 하나님의 살아 있는 말씀에 의한 것입니다. 
+* **1 Peter(1Pet) 1:23**: For you have been born again, not of perishable seed, but of imperishable, through the living and enduring word of God. 
 
 * **살아 있는 말씀:** "너희가 거듭난 것은 썩어질 씨로 된 것이 아니요 썩지 아니할 씨로 된 것이니 살아 있고 항상 있는 하나님의 말씀으로 되었느니라" (베드로전서 1:23).  
 * **예수 그리스도를 믿음:** 예수님이 나의 죄를 대신해 죽으시고 부활하셨음을 믿을 때, 성령께서 우리 안에 새로운 생명을 창조하십니다.
