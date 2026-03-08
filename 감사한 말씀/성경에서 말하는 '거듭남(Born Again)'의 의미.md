@@ -7,28 +7,13 @@
 예수님은 니고데모에게 "사람이 거듭나지 아니하면 하나님의 나라를 볼 수 없느니라"(요 3:3)고 말씀하셨습니다. 여기서 거듭남은 다음과 같은 특징을 가집니다.
 
 * **요한복음(요) 3장 1절**: 바리새인들 중에 니고데모라는 사람이 있었습니다. 그는 유대 공의회 의원 중 한 사람이었습니다. 
-* **John(John) 3:1**: Now there was a man of the Pharisees named Nicodemus, a member of the Jewish ruling council.
-
 * **요한복음(요) 3장 2절**: 어느 날 밤, 니고데모가 예수님을 찾아왔습니다. 그는 “선생님, 우리는 당신이 하나님께로부터 오신 선생님이라는 것을 압니다. 하나님께서 함께하시지 않는다면, 아무도 선생님께서 하셨던 일들을 행할 수 없습니다”라고 말했습니다. 
-* **John(John) 3:2**: He came to Jesus at night and said, "Rabbi, we know you are a teacher who has come from God. For no one could perform the miraculous signs you are doing if God were not with him." 
-
-* **예수님께서 대답하셨습니다.**: “내가 너에게 진리를 말한다. 누구든지 다시 태어나지 않으면, 하나님의 나라를 볼 수 없다.” 
-* **John(John) 3:3**: In reply Jesus declared, "I tell you the truth, no one can see the kingdom of God unless he is born again." 
-
+* **요한복음(요) 3장 2절**: 예수님께서 대답하셨습니다. “내가 너에게 진리를 말한다. 누구든지 다시 태어나지 않으면, 하나님의 나라를 볼 수 없다.” 
 * **요한복음(요) 3장 4절**: 니고데모가 예수님께 물었습니다. “사람이 이미 나이가 많아 어른이 되었는데, 어떻게 다시 태어날 수 있겠습니까? 어머니의 태 안에 다시 들어가 두 번씩이나 태어날 수 있겠습니까?” 
-* **John(John) 3:4**: "How can a man be born when he is old?" Nicodemus asked. "Surely he cannot enter a second time into his mother's womb to be born!" 
-
 * **요한복음(요) 3장 5절**: 예수님께서는 이렇게 대답하셨습니다. “내가 너에게 진리를 말한다. 누구든지 물과 성령으로 태어나지 않는다면, 그 사람은 하나님 나라에 들어갈 수 없다. 
-* **John(John) 3:5**: Jesus answered, "I tell you the truth, no one can enter the kingdom of God unless he is born of water and the Spirit. --
-
 * **요한복음(요) 3장 6절**: 사람이 육체적으로는 그의 부모로부터 태어나지만, 영적으로는 성령으로부터 태어난다. 
-* **John(John) 3:6**: Flesh gives birth to flesh, but the Spirit gives birth to spirit. 
-
 * **요한복음(요) 3장 7절**: 내가 너에게 ‘다시 태어나야 한다’라고 말한 것에 너무 놀라지 마라. 
-* **John(John) 3:7**: You should not be surprised at my saying, 'You must be born again.' 
-
 * **요한복음(요) 3장 8절**: 바람은 제 맘대로 부는 법이다. 너는 바람 부는 소리는 듣지만, 그 바람이 어디서부터 와서 어디로 가는지는 알지 못한다. 성령으로 다시 태어나는 모든 사람도 이와 같다.” 
-* **John(John) 3:8**: The wind blows wherever it pleases. You hear its sound, but you cannot tell where it comes from or where it is going. So it is with everyone born of the Spirit." 
 
 * **영적인 출생:** 육체적으로 어머니의 모태에 다시 들어가는 것이 아니라, 성령으로 말미암아 영이 다시 태어나는 것을 의미합니다.  
 * **물과 성령으로 남:** 예수님은 "물과 성령으로 나지 아니하면 하나님 나라에 들어갈 수 없다"(요 3:5)고 하셨습니다. 여기서 '물'은 죄의 씻음(회개)을, '성령'은 새로운 생명의 부여를 상징하는 것으로 해석됩니다.  
@@ -39,13 +24,8 @@
 성경은 모든 인간이 죄로 인해 영적으로 죽은 상태라고 선언합니다.
 
 * **에베소서(엡) 2장 1절**: 불순종과 죄로 인하여 여러분은 영적으로 죽은 사람들이었습니다. 
-* **Ephesians(Eph) 2:1**: As for you, you were dead in your transgressions and sins, 
-
 * **에베소서(엡) 2장 2절**: 세상 사람들과 똑같이 살며, 땅 위의 권세 잡은 악한 세력에 순종하였습니다. 이 악한 영은 지금도 하나님을 대항하는 자들의 마음속에서 활동하고 있습니다. 
-* **Ephesians(Eph) 2:2**: in which you used to live when you followed the ways of this world and of the ruler of the kingdom of the air, the spirit who is now at work in those who are disobedient. 
-
 * **에베소서(엡) 2장 3절**: 우리 모두 저들과 똑같이 죄된 본성을 좇아 행하고, 육체와 마음이 원하는 대로 온갖 일을 저질렀습니다. 우리가 하나님의 분노를 사는 것은 당연한 결과입니다. 왜냐하면 그렇게 살아왔기 때문입니다. 
-* **Ephesians(Eph) 2:3**: All of us also lived among them at one time, gratifying the cravings of our sinful nature and following its desires and thoughts. Like the rest, we were by nature objects of wrath. 
 
 * **본질상의 진노의 자녀:** 아담의 타락 이후 모든 사람은 죄성을 가지고 태어나며 하나님과 단절되었습니다 (에베소서 2:1-3).  
 * **영적 무능력:** 죄에 매인 상태로는 스스로 하나님을 기쁘시게 하거나 천국에 들어갈 자격을 갖출 수 없습니다.  
@@ -58,17 +38,13 @@
 "그런즉 누구든지 그리스도 안에 있으면 새로운 피조물이라 이전 것은 지나갔으니 보라 새 것이 되었도다" (고린도후서 5:17)
 
 * **고린도후서(고후) 5장 17절**: 그러므로 누구든지 그리스도 안에 있으면 새로운 창조입니다. 이전 것들은 지나갔고, 보십시오, 새 것들이 와 있습니다. 
-* **2 Corinthians(2Cor) 5:17**: Therefore, if anyone is in Christ, he is a new creation, the old has gone, the new has come!
 
 * **로마서(롬) 8장 15절**: 여러분이 받은 성령은 여러분을 다시 두려움에 이르게 하는, 노예로 만드는 영이 아니라 여러분을 하나님의 자녀가 되게 하는 영이십니다. 그래서 우리는 그 성령을 의지하여 “아바, 아버지”라고 부를 수 있는 것입니다. 
-* **Romans(Rom) 8:15**: For you did not receive a spirit that makes you a slave again to fear, but you received the Spirit of sonship. And by him we cry, "Abba, Father."
 
 * **갈라디아서(갈) 5장 22절**: 그러나 성령의 열매는 사랑과 기쁨과 평화와 오래 참음과 자비와 착함과 성실과
-* **Galatians(Gal) 5:22**: But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, 
-
 * **갈라디아서(갈) 5장 23절**: 온유와 절제입니다. 이런 것들을 금지할 율법이 없습니다. 
 * **Galatians(Gal) 5:23**: gentleness and self-control. Against such things there is no law.
-
+* 
 1. **가치관의 변화:** 세상적인 욕망보다 하나님의 뜻과 영광을 구하는 마음이 생깁니다.  
 2. **죄에 대한 태도:** 전에는 즐기던 죄가 싫어지고, 하나님 보시기에 거룩한 삶을 살고자 하는 열망이 생깁니다.  
 3. **하나님과의 관계 회복:** 하나님을 '아바 아버지'라 부르며 인격적인 관계를 맺게 됩니다 (로마서 8:15).  
@@ -79,7 +55,6 @@
 어떻게 거듭날 수 있는가에 대해 성경은 '말씀'과 '믿음'을 강조합니다.
 
 * **베드로전서(벧전) 1장 23절**: 여러분은 다시 태어났습니다. 이 새 생명은 죽어 없어질 것으로부터 난 것이 아니라 결코 죽지 않는 것으로부터 생긴 것입니다. 여러분이 다시 태어난 것은 영원한 하나님의 살아 있는 말씀에 의한 것입니다. 
-* **1 Peter(1Pet) 1:23**: For you have been born again, not of perishable seed, but of imperishable, through the living and enduring word of God. 
 
 * **살아 있는 말씀:** "너희가 거듭난 것은 썩어질 씨로 된 것이 아니요 썩지 아니할 씨로 된 것이니 살아 있고 항상 있는 하나님의 말씀으로 되었느니라" (베드로전서 1:23).  
 * **예수 그리스도를 믿음:** 예수님이 나의 죄를 대신해 죽으시고 부활하셨음을 믿을 때, 성령께서 우리 안에 새로운 생명을 창조하십니다.
