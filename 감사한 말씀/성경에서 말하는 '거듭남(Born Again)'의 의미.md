@@ -38,6 +38,15 @@
 
 성경은 모든 인간이 죄로 인해 영적으로 죽은 상태라고 선언합니다.
 
+* **에베소서(엡) 2장 1절**: 불순종과 죄로 인하여 여러분은 영적으로 죽은 사람들이었습니다. 
+* **Ephesians(Eph) 2:1**: As for you, you were dead in your transgressions and sins, 
+
+* **에베소서(엡) 2장 2절**: 세상 사람들과 똑같이 살며, 땅 위의 권세 잡은 악한 세력에 순종하였습니다. 이 악한 영은 지금도 하나님을 대항하는 자들의 마음속에서 활동하고 있습니다. 
+* **Ephesians(Eph) 2:2**: in which you used to live when you followed the ways of this world and of the ruler of the kingdom of the air, the spirit who is now at work in those who are disobedient. 
+
+* **에베소서(엡) 2장 3절**: 우리 모두 저들과 똑같이 죄된 본성을 좇아 행하고, 육체와 마음이 원하는 대로 온갖 일을 저질렀습니다. 우리가 하나님의 분노를 사는 것은 당연한 결과입니다. 왜냐하면 그렇게 살아왔기 때문입니다. 
+* **Ephesians(Eph) 2:3**: All of us also lived among them at one time, gratifying the cravings of our sinful nature and following its desires and thoughts. Like the rest, we were by nature objects of wrath. 
+
 * **본질상의 진노의 자녀:** 아담의 타락 이후 모든 사람은 죄성을 가지고 태어나며 하나님과 단절되었습니다 (에베소서 2:1-3).  
 * **영적 무능력:** 죄에 매인 상태로는 스스로 하나님을 기쁘시게 하거나 천국에 들어갈 자격을 갖출 수 없습니다.  
 * **새로운 신분 필요:** 하나님 나라의 백성이 되기 위해서는 하늘의 생명을 가진 새로운 존재로 변화되어야만 합니다.
