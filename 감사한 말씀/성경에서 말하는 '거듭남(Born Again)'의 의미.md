@@ -6,6 +6,30 @@
 
 예수님은 니고데모에게 "사람이 거듭나지 아니하면 하나님의 나라를 볼 수 없느니라"(요 3:3)고 말씀하셨습니다. 여기서 거듭남은 다음과 같은 특징을 가집니다.
 
+* **요한복음(요) 3장 1절**: 바리새인들 중에 니고데모라는 사람이 있었습니다. 그는 유대 공의회 의원 중 한 사람이었습니다. 
+* **John(John) 3:1**: Now there was a man of the Pharisees named Nicodemus, a member of the Jewish ruling council.
+
+* **요한복음(요) 3장 2절**: 어느 날 밤, 니고데모가 예수님을 찾아왔습니다. 그는 “선생님, 우리는 당신이 하나님께로부터 오신 선생님이라는 것을 압니다. 하나님께서 함께하시지 않는다면, 아무도 선생님께서 하셨던 일들을 행할 수 없습니다”라고 말했습니다. 
+* **John(John) 3:2**: He came to Jesus at night and said, "Rabbi, we know you are a teacher who has come from God. For no one could perform the miraculous signs you are doing if God were not with him." 
+
+* **예수님께서 대답하셨습니다.**: “내가 너에게 진리를 말한다. 누구든지 다시 태어나지 않으면, 하나님의 나라를 볼 수 없다.” 
+* **John(John) 3:3**: In reply Jesus declared, "I tell you the truth, no one can see the kingdom of God unless he is born again." 
+
+* **요한복음(요) 3장 4절**: 니고데모가 예수님께 물었습니다. “사람이 이미 나이가 많아 어른이 되었는데, 어떻게 다시 태어날 수 있겠습니까? 어머니의 태 안에 다시 들어가 두 번씩이나 태어날 수 있겠습니까?” 
+* **John(John) 3:4**: "How can a man be born when he is old?" Nicodemus asked. "Surely he cannot enter a second time into his mother's womb to be born!" 
+
+* **요한복음(요) 3장 5절**: 예수님께서는 이렇게 대답하셨습니다. “내가 너에게 진리를 말한다. 누구든지 물과 성령으로 태어나지 않는다면, 그 사람은 하나님 나라에 들어갈 수 없다. 
+* **John(John) 3:5**: Jesus answered, "I tell you the truth, no one can enter the kingdom of God unless he is born of water and the Spirit. --
+
+* **요한복음(요) 3장 6절**: 사람이 육체적으로는 그의 부모로부터 태어나지만, 영적으로는 성령으로부터 태어난다. 
+* **John(John) 3:6**: Flesh gives birth to flesh, but the Spirit gives birth to spirit. 
+
+* **요한복음(요) 3장 7절**: 내가 너에게 ‘다시 태어나야 한다’라고 말한 것에 너무 놀라지 마라. 
+* **John(John) 3:7**: You should not be surprised at my saying, 'You must be born again.' 
+
+* **요한복음(요) 3장 8절**: 바람은 제 맘대로 부는 법이다. 너는 바람 부는 소리는 듣지만, 그 바람이 어디서부터 와서 어디로 가는지는 알지 못한다. 성령으로 다시 태어나는 모든 사람도 이와 같다.” 
+* **John(John) 3:8**: The wind blows wherever it pleases. You hear its sound, but you cannot tell where it comes from or where it is going. So it is with everyone born of the Spirit." 
+
 * **영적인 출생:** 육체적으로 어머니의 모태에 다시 들어가는 것이 아니라, 성령으로 말미암아 영이 다시 태어나는 것을 의미합니다.  
 * **물과 성령으로 남:** 예수님은 "물과 성령으로 나지 아니하면 하나님 나라에 들어갈 수 없다"(요 3:5)고 하셨습니다. 여기서 '물'은 죄의 씻음(회개)을, '성령'은 새로운 생명의 부여를 상징하는 것으로 해석됩니다.  
 * **하나님의 주권적 역사:** 바람이 임의로 불 듯, 거듭남은 인간의 의지가 아니라 성령의 주권적인 역사로 이루어집니다.
