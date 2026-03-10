@@ -9,7 +9,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage02.jpg" > 
 
 # https://github.com/insaneoops288/BibleChinese
-### **[WorldOfGod(Chinese))](https://www.youtube.com/watch?v=4NcfcY7AogI&list=PLgav7xHKsaJ8PjEMu8W3J6uJ12LckF9sR&index=1)**
+### **[WorldOfGod(Chinese)](https://www.youtube.com/watch?v=4NcfcY7AogI&list=PLgav7xHKsaJ8PjEMu8W3J6uJ12LckF9sR&index=1)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage03.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage04.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage05.jpg" > 
