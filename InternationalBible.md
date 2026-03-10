@@ -64,7 +64,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage24.jpg" > 
 
 # https://github.com/insaneoops288/BiblePortuguese
-### **[WorldOfGod(Portuguese)](youtube.com/watch?v=mxMDElVx9CE&list=PLgav7xHKsaJ8snAaraSSuEi3C49o2s1lF&pp=sAgC)***
+### **[WorldOfGod(Portuguese)](youtube.com/watch?v=mxMDElVx9CE&list=PLgav7xHKsaJ8snAaraSSuEi3C49o2s1lF&pp=sAgC)**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage25.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage26.jpg" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage27.jpg" > 
