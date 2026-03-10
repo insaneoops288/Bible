@@ -20,7 +20,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage07.jpg" > 
 
 # https://github.com/insaneoops288/BibleFinnish
-### **[WorldOfGod(Finnish))](https://www.youtube.com/watch?v=gp5vbKF1qqo&list=PLgav7xHKsaJ_dr0obX_TGuJ1t6eej4DSR&index=1)**
+### **[WorldOfGod(Finnish)](https://www.youtube.com/watch?v=gp5vbKF1qqo&list=PLgav7xHKsaJ_dr0obX_TGuJ1t6eej4DSR&index=1)**
 .<img src="https://github.com/insaneoops288/Bible/blob/main/Bibleimage/Bibleimage08.jpg" > 
 
 # https://github.com/insaneoops288/BibleFrench
