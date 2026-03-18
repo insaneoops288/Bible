@@ -20,42 +20,6 @@
 하지만 아버지께서 저를 도구로써 다른 뜻을 가지고 계시면 제뜻대로 하지 마시고 아버지 뜻대로 해 주십시요  저는 순종합니다.
 이 모든 말씀 살아계신 아버지의 아들이시며 구세주이신 예수님의 이름으로 기도드립니다. 아멘
 
-- **[성경이 말하는 하늘에 계시는 아버지의 뜻을 행하는 방법입니다.](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%8A%98%EC%97%90%20%EA%B3%84%EC%8B%9C%EB%8A%94%20%EC%95%84%EB%B2%84%EC%A7%80%EC%9D%98%20%EB%9C%BB%EC%9D%84%20%ED%96%89%ED%95%98%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
-
-- **[성경에서 말하는 하나님의 은혜로 예수님을 구세주로 영접하고 거듭남과 회계를 통해서 구원을 얻는방법입니다.](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EC%9D%80%ED%98%9C%EB%A1%9C%20%EC%98%88%EC%88%98%EB%8B%98%EC%9D%84%20%EA%B5%AC%EC%84%B8%EC%A3%BC%EB%A1%9C%20%EC%98%81%EC%A0%91%ED%95%98%EA%B3%A0%20%EA%B1%B0%EB%93%AD%EB%82%A8%EA%B3%BC%20%ED%9A%8C%EA%B3%84%EB%A5%BC%20%ED%86%B5%ED%95%B4%EC%84%9C%20%EA%B5%AC%EC%9B%90%EC%9D%84%20%EC%96%BB%EB%8A%94.md)**
-
-- **[예수님을 통하지 않고 성도가 직접 하나님과 대화할 수 있는가?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%98%88%EC%88%98%EB%8B%98%EC%9D%84%20%ED%86%B5%ED%95%98%EC%A7%80%20%EC%95%8A%EA%B3%A0%20%EC%84%B1%EB%8F%84%EA%B0%80%20%EC%A7%81%EC%A0%91%20%ED%95%98%EB%82%98%EB%8B%98%EA%B3%BC%20%EB%8C%80%ED%99%94%ED%95%A0%20%EC%88%98%20%EC%9E%88%EB%8A%94%EA%B0%80.md)**
-
-- **[당신은 하늘나라에 들어가는 길을 찾았나요?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EB%8B%B9%EC%8B%A0%EC%9D%80%20%ED%95%98%EB%8A%98%EB%82%98%EB%9D%BC%EC%97%90%20%EB%93%A4%EC%96%B4%EA%B0%80%EB%8A%94%20%EA%B8%B8%EC%9D%84%20%EC%B0%BE%EC%95%98%EB%82%98%EC%9A%94.md)**
-    
-- **[성경에서 말하는 천국에 가는 방법입니다.](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%B2%9C%EA%B5%AD%EC%97%90%20%EA%B0%80%EB%8A%94%20%EB%B0%A9%EB%B2%95.md)**
-
-- **[성경에서 말하는 진정한 회개와 거듭남이란?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%A7%84%EC%A0%95%ED%95%9C%20%ED%9A%8C%EA%B0%9C%EC%99%80%20%EA%B1%B0%EB%93%AD%EB%82%A8%EC%9D%B4%EB%9E%80.md)**
-
-- **[성경에서 말하는 '거듭남(Born Again)'의 의미](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20'%EA%B1%B0%EB%93%AD%EB%82%A8(Born%20Again)'%EC%9D%98%20%EC%9D%98%EB%AF%B8.md)**
-
-- **[성경에서 말하는 회개(Repentance)란 무엇인가](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%9A%8C%EA%B0%9C(Repentance)%EB%9E%80%20%EB%AC%B4%EC%97%87%EC%9D%B8%EA%B0%80.md)**
-
-- **[성경이 말하는 우리들이 성전이고, 제사장인 이유?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%EC%9A%B0%EB%A6%AC%EB%93%A4%EC%9D%B4%20%EC%84%B1%EC%A0%84%EC%9D%B8%2C%20%EC%A0%9C%EC%82%AC%EC%9E%A5%EC%9D%B8%20%EC%9D%B4%EC%9C%A0.md)**
-
-- **[성경에서 말하는 교회공동체입니다.](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EA%B5%90%ED%9A%8C%EA%B3%B5%EB%8F%99%EC%B2%B4.md)**
-
-- **[성경이 말하는 회당과 교회당의 차이점?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%9A%8C%EB%8B%B9%EA%B3%BC%20%EA%B5%90%ED%9A%8C%EB%8B%B9%EC%9D%98%20%EC%B0%A8%EC%9D%B4%EC%A0%90.md)**
-
-- **[성경에서 말하는 그의 나라와 그의 의를 구하라의 의미?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EA%B7%B8%EC%9D%98%20%EB%82%98%EB%9D%BC%EC%99%80%20%EA%B7%B8%EC%9D%98%20%EC%9D%98%EB%A5%BC%20%EA%B5%AC%ED%95%98%EB%9D%BC%EC%9D%98%20%EC%9D%98%EB%AF%B8.md)**
-
-- **[하나님 아버지의 자녀, 살아계신 하나님의 아들이시며 구세주이신 예수님, 하나님 나라의 백성이 되기 위한?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%ED%95%98%EB%82%98%EB%8B%98%20%EC%95%84%EB%B2%84%EC%A7%80%EC%9D%98%20%EC%9E%90%EB%85%80%2C%20%EC%82%B4%EC%95%84%EA%B3%84%EC%8B%A0%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EC%95%84%EB%93%A4%EC%9D%B4%EC%8B%9C%EB%A9%B0%20%EA%B5%AC%EC%84%B8%EC%A3%BC%EC%9D%B4%EC%8B%A0%20%EC%98%88%EC%88%98%EB%8B%98%2C%20%ED%95%98%EB%82%98%EB%8B%98%20%EB%82%98%EB%9D%BC%EC%9D%98%20%EB%B0%B1%EC%84%B1%EC%9D%B4%20%EB%90%98%EA%B8%B0%20%EC%9C%84%ED%95%9C.md)**
-
-- **[성경이 말하는 하나님이 선택하신 목자란?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%9D%B4%20%EB%A7%90%ED%95%98%EB%8A%94%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%B4%20%EC%84%A0%ED%83%9D%ED%95%98%EC%8B%A0%20%EB%AA%A9%EC%9E%90%EB%9E%80.md)**
-
-- **[초대교회에서의 하나님의 뜻을 따르는 하나님 아버지의 자녀들이 하나님께 찬양드리는 예배란?](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%B4%88%EB%8C%80%EA%B5%90%ED%9A%8C%EC%97%90%EC%84%9C%EC%9D%98%20%ED%95%98%EB%82%98%EB%8B%98%EA%BB%98%20%EC%B0%AC%EC%96%91%EB%93%9C%EB%A6%AC%EB%8A%94%20%EC%98%88%EB%B0%B0%EB%9E%80.md)**
-
-- **[우리에게 지도자는 예수님 한분 뿐이며 우리들은 모두 형제이며 자매이다](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%9A%B0%EB%A6%AC%EC%97%90%EA%B2%8C%20%EC%A7%80%EB%8F%84%EC%9E%90%EB%8A%94%20%EC%98%88%EC%88%98%EB%8B%98%20%ED%95%9C%EB%B6%84%20%EB%BF%90%EC%9D%B4%EB%A9%B0%20%EC%9A%B0%EB%A6%AC%EB%93%A4%EC%9D%80%20%EB%AA%A8%EB%91%90%20%ED%98%95%EC%A0%9C%EC%9D%B4%EB%A9%B0%20%EC%9E%90%EB%A7%A4%EC%9D%B4%EB%8B%A4..md)**
-
-- **[성경에서 말하는 목자와 청지기의 의미와 역할](https://github.com/insaneoops288/Bible/blob/main/%EA%B0%90%EC%82%AC%ED%95%9C%20%EB%A7%90%EC%94%80/%EC%84%B1%EA%B2%BD%EC%97%90%EC%84%9C%20%EB%A7%90%ED%95%98%EB%8A%94%20%EB%AA%A9%EC%9E%90%EC%99%80%20%EC%B2%AD%EC%A7%80%EA%B8%B0%EC%9D%98%20%EC%9D%98%EB%AF%B8%EC%99%80%20%EC%97%AD%ED%95%A0.md)**
-
-- **[]()**
-
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church103.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church104.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church106.jpg" >
