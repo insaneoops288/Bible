@@ -10,7 +10,6 @@
 ###### ✟ 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. 
 ###### ✟ It is the word of the Father's devoted love for His children.
 
-- **[하나님의 말씀 교회공동체 Youtube입니다. ](https://www.youtube.com/@RyongKim1)**
 - **[International성경 각 나라별 Github주소들입니다.](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
 - **[하나님의 말씀 이미지들입니다.](https://github.com/insaneoops288/Bible/blob/main/WordOfGod.md)**
 - **[감사한 말씀 : 성경 문장들입니다.](https://github.com/insaneoops288/Bible/blob/main/%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EB%A7%90%EC%94%80.md)**
