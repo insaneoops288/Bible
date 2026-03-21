@@ -3,9 +3,12 @@
 
 # 읽어주는 하나님의 말씀 v2.100입니다.
 
-- 당신은 하늘나라에 들어가는 길을 찾았나요? Have you found your way to heaven?
-- 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다. The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
-- 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. It is the word of the Father's devoted love for His children.
+###### ✟  당신은 하늘나라에 들어가는 길을 찾았나요? 
+###### ✟ Have you found your way to heaven?
+###### ✟  하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다. 
+###### ✟ The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
+###### ✟ 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. 
+###### ✟ It is the word of the Father's devoted love for His children.
 
 - **[하나님의 말씀 교회공동체 Youtube](https://www.youtube.com/@RyongKim1)**
 - **[International성경 각 나라별 Github주소들입니다.](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
