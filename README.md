@@ -7,10 +7,13 @@
 - 하나님의 말씀인 성경은 진리이며 영원한 생명의 말씀이며 하나님의 사랑입니다. The Bible, the Word of God, is truth, the Word of eternal life, and God's love. 
 - 아버지께서 자녀들에게 해주시는 헌신적인 사랑의 말씀입니다. It is the word of the Father's devoted love for His children.
 
-- **[하나님의 말씀 교회공동체](https://www.youtube.com/@RyongKim1)**
+- **[하나님의 말씀 교회공동체 Youtube](https://www.youtube.com/@RyongKim1)**
 - **[International성경 각 나라별 Github주소들입니다.](https://github.com/insaneoops288/Bible/blob/main/InternationalBible.md)**
 - **[하나님의 말씀 이미지들입니다.](https://github.com/insaneoops288/Bible/blob/main/WordOfGod.md)**
+- **[감사한 말씀](https://github.com/insaneoops288/Bible/blob/main/%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EB%A7%90%EC%94%80.md)**
 - **[소중한 말씀 : 성경 문장들입니다.](https://github.com/insaneoops288/Bible/blob/main/PreciousWords.md)**
+- **[셩경 애니메이션 스토리텔링](https://github.com/insaneoops288/Bible/tree/main/AnimationConcept)**
+- **[200가지 이상의 언어, 1000가지 이상의 하나님의 말씀](https://github.com/insaneoops288/Bible/blob/main/200%EA%B0%80%EC%A7%80%20%EC%9D%B4%EC%83%81%EC%9D%98%20%EC%96%B8%EC%96%B4%2C%201000%EA%B0%80%EC%A7%80%20%EC%9D%B4%EC%83%81%EC%9D%98%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EB%A7%90%EC%94%80.md)**
 
 하늘에 계시는 사랑하는 우리 아버지.
 아버지의 말씀인 성경을, 아버지께서 원래 의도하셨던 뜻대로 진실하게 이해할 수 있는 지혜를 저에게 주십시요. 
