@@ -24,7 +24,7 @@
 하지만 아버지께서 저를 도구로써 다른 뜻을 가지고 계시면 제뜻대로 하지 마시고 아버지 뜻대로 해 주십시요  저는 순종합니다.
 이 모든 말씀 살아계신 아버지의 아들이시며 구세주이신 예수님의 이름으로 기도드립니다. 아멘
 
-<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church_200.png >
+<img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church_200.png" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church103.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church104.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church106.jpg" >
