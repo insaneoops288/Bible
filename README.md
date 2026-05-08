@@ -1,7 +1,7 @@
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church01.jpg" >
 <img src="https://github.com/insaneoops288/Bible/blob/main/WordOfGod/Church02.jpg" >
 
-# 읽어주는 하나님의 말씀 v3.2입니다.
+# 읽어주는 하나님의 말씀 v3.4입니다.
 
 ###### ✟  당신은 하늘나라에 들어가는 길을 찾았나요? 
 ###### ✟ Have you found your way to heaven?
