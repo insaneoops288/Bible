@@ -1,3 +1,7 @@
 {
-  "theme": "obsidian"
+  "theme": "obsidian",
+  "baseFontSizeAction": true,
+  "interfaceFontFamily": "맑은 고딕",
+  "textFontFamily": "맑은 고딕",
+  "monospaceFontFamily": "맑은 고딕"
 }
