@@ -187,28 +187,28 @@
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible015.png" > 
 
-- **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 5가지를 선택해서 읽어줄 수 있습니다.]()**
+성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 5가지를 선택해서 읽어줄 수 있습니다.
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="300"> 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
 
-- **[선택된 성경의 각 장들을 선택할 수 있습니다.]()**
+선택된 성경의 각 장들을 선택할 수 있습니다.
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 
-- **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.]()**
+각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible014.png" width="300"> 
 
-- **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.]()**
+자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
-- **[선택한 성경에서 특정 단어로 검색이 가능합니다.]()**
+선택한 성경에서 특정 단어로 검색이 가능합니다.
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
 
-- **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.]()**
+업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.
   
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
