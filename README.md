@@ -185,32 +185,30 @@
 
 형제자매 여러분, 그러므로 나는 하나님의 자비하심을 힘입어 여러분에게 권합니다. 여러분은 여러분의 몸을 하나님께서 기뻐하실 거룩한 산 제물로 드리십시오. 이것이 여러분이 드릴 합당한 예배입니다.  로마서 12:1
 
-- **[깃허브에서 읽어주는 성경을 설치하는 방법입니다. 종전에 이미 읽어주는 성경이 설치되어 있다면 압축파일을 다운으로 받아서 종전에 폴더에 덮어쓰기 하시면 됩니다.](https://youtu.be/RBitCWxFkRY)**
-
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible015.png" > 
 
-- **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 5가지를 선택해서 읽어줄 수 있습니다.](https://youtu.be/SkT-nuRFXGQ)**
+- **[성경의 내용을 한글과 영어로 읽어줄 수 있습니다. 한글성경 4가지, 영어성경 5가지를 선택해서 읽어줄 수 있습니다.]()**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible007.png" width="300"> 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible003.png" > 
 
-- **[선택된 성경의 각 장들을 선택할 수 있습니다.](https://youtu.be/y65fb2ZYDG8)**
+- **[선택된 성경의 각 장들을 선택할 수 있습니다.]()**
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible009.png" > 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible008.png" > 
 
-- **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.](https://youtu.be/SkT-nuRFXGQ)**
+- **[각 장들에 포함된 모든 절을 순서적으로 읽어줍니다.]()**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible014.png" width="300"> 
 
-- **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.](https://www.youtube.com/watch?v=OTZHtN0YqTI)**
+- **[자동이 아니고 수동으로 한 절씩 읽어줄 수도 있습니다. 키보드의 오른쪽키를 누르면 다음 절이 읽어지고, 키보드의 왼쪽키를 누르면 이전 절이 읽어지고, 키보드의 하단키를 누르면 현재 절이 읽어집니다.]()**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Keyboard.png" width="250">
 
-- **[선택한 성경에서 특정 단어로 검색이 가능합니다.](https://www.youtube.com/watch?v=rwGmyHYcX10)**
+- **[선택한 성경에서 특정 단어로 검색이 가능합니다.]()**
 
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible001.png" width="300"> 
 
-- **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.](https://www.youtube.com/watch?v=RtIdi5DzV7k)**
+- **[업데이트 버튼을 통해서 성경 깃허브로 들어와서 최신 버전을 다운로드 할 수 있습니다.]()**
   
 <img src="https://github.com/insaneoops288/Bible/blob/main/Images/Bible002.png" width="150"> 
 
