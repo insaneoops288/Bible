@@ -11,7 +11,7 @@ Library: C:\UnityProject\BibleStudy\Temp\BurstOutput\Data\Plugins\x86_64\lib_bur
 --linker-options=PdbAltPath="Bible_Data/Plugins/x86_64/lib_burst_generated.pdb"
 --generate-link-xml=Temp\burst.link.xml
 --temp-folder=C:\UnityProject\BibleStudy\Temp\Burst
---key-folder=C:/Program Files/Unity/Hub/Editor/6000.5.7f1/Editor/Data/PlaybackEngines/WindowsStandaloneSupport
+--key-folder=C:/Program Files/Unity/Hub/Editor/6000.5.8f1/Editor/Data/PlaybackEngines/WindowsStandaloneSupport
 --decode-folder=C:\UnityProject\BibleStudy\Library\Burst
 --output=C:\UnityProject\BibleStudy\Temp\BurstOutput\Data\Plugins\x86_64\lib_burst_generated
 --pdb-search-paths=Temp/ManagedSymbols/
@@ -56,7 +56,7 @@ Library: C:\UnityProject\BibleStudy\Temp\BurstOutput\Data\Plugins\x86_64\lib_bur
 --linker-options=PdbAltPath="Bible_Data/Plugins/x86_64/lib_burst_generated.pdb"
 --generate-link-xml=Temp\burst.link.xml
 --temp-folder=C:\UnityProject\BibleStudy\Temp\Burst
---key-folder=C:/Program Files/Unity/Hub/Editor/6000.5.7f1/Editor/Data/PlaybackEngines/WindowsStandaloneSupport
+--key-folder=C:/Program Files/Unity/Hub/Editor/6000.5.8f1/Editor/Data/PlaybackEngines/WindowsStandaloneSupport
 --decode-folder=C:\UnityProject\BibleStudy\Library\Burst
 --output=C:\UnityProject\BibleStudy\Temp\BurstOutput\Data\Plugins\x86_64\lib_burst_generated
 --pdb-search-paths=Temp/ManagedSymbols/
