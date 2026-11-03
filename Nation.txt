@@ -1,0 +1,47 @@
+chinese_union_simp	Chinese Union (Simplified)	Chinese
+chinese_union_trad	Chinese Union (Traditional)	Chinese
+ckjv_sds	"中文英皇钦定本上帝版 
+Chinese KJV (Simplified)"	Chinese
+ckjv_sdt	"中文英皇欽定本上帝版 
+Chinese KJV (Traditional)"	Chinese
+afri	Afrikaans 1953                                   	Afrikaans
+albanian	Albanian                                                    	Albanian
+bkr	Bible Kralicka                                              	Czech
+cadman	Vietnamese Cadman (1934)                                    	Vietnamese
+finn	Finnish 1776 (Finnish) (1776)                               	Finnish
+indo_tb	Terjemahan Baru (1994)                                      	Indonesian
+indo_tm	Terjemahan Lama                                             	Indonesian
+pol_nbg	NOWEJ BIBLII GDANSKIEJ (2012)                               	Polish
+pol_ubg	Uwspółcześniona Biblia Gdańska (2017)                      	Polish
+polbg	Polska Biblia Gdanska (1881)                                	Polish
+tagab	Tagalog Ang Biblia (1905)                                   	Tagalog
+thaikjv	Thai KJV                                                    	Thai
+almeida_ra	Tradução de João Ferreira de Almeida                        	Portuguese
+almeida_rc	Tradução de João Ferreira de Almeida Revista e Corrigida    	Portuguese
+blivre	Biblia Livre                                                	Portuguese
+bungo	Bungo-yaku: Taisho-kaiyaku (NT) (1950)                      	Japanese
+kougo	Kougo-yaku (1954/1955)                                      	Japanese
+elberfelder_1905	Elberfelder (1905)                                          	German
+luther_1912	Luther Bible (1912)                                	German
+schlachter	Schlachter Bibel (1951)                                     	German
+fidela	Fidela Biblia în limba română (2011-2016)                   	Romanian
+epee	La Bible de l'Épée (2005)                                   	French
+oster	Ostervald (1996)                                            	French
+segond_1910	Louis Segond 1910                                	French
+rv_1909	Reina Valera 1909                            	Spanish
+rvg	Reina Valera Gómez (2010)                                   	Spanish
+rvg_2004	Reina Valera Gómez (2004)	Spanish
+sagradas	Sagradas Escrituras (1569)                                  	Spanish
+diodati	Diodati (1649)                                              	Italian
+irv	Indian Revised Version (2017 / 2018)                        	Hindi
+karoli	Karoli                                                      	Hungarian
+synodal	Synodal (1876)                                              	Russian
+EasyBible	쉬운성경	Korean
+KoreanBible	우리말성경                                               	Korean
+NewStandardTranslation	표준새번역                                              	Korean
+RevisedRevision	개역개정                                                    	Korean
+NIV	New International Version	English
+ESV	English Standard Version	English
+NewRSV	New Revised Standard Version	English
+KJV	King James Version	English
+NewKJV	New King James Version	English
