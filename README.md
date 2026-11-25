@@ -14,7 +14,6 @@
 - **[하나님의 말씀 이미지들입니다.](https://github.com/insaneoops288/Bible/blob/main/WordOfGod.md)**
 - **[감사한 말씀 : 성경 문장들입니다.](https://github.com/insaneoops288/Bible/blob/main/%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EB%A7%90%EC%94%80.md)**
 - **[소중한 말씀 : 성경 문장들입니다.](https://github.com/insaneoops288/Bible/blob/main/PreciousWords.md)**
-- **[셩경 애니메이션 스토리텔링 문장들입니다.](https://github.com/insaneoops288/Bible/tree/main/AnimationConcept)**
 - **[200가지 이상의 언어, 1000가지 이상의 하나님의 말씀입니다. ](https://github.com/insaneoops288/Bible/blob/main/200%EA%B0%80%EC%A7%80%20%EC%9D%B4%EC%83%81%EC%9D%98%20%EC%96%B8%EC%96%B4%2C%201000%EA%B0%80%EC%A7%80%20%EC%9D%B4%EC%83%81%EC%9D%98%20%ED%95%98%EB%82%98%EB%8B%98%EC%9D%98%20%EB%A7%90%EC%94%80.md)**
 
 하늘에 계시는 사랑하는 우리 아버지.
